@@ -1,6 +1,5 @@
 ---
-title: Welcome to Quartz
+title: TimpaniUmbra
 ---
 
-This is a blank Quartz installation.
-See the [documentation](https://quartz.jzhao.xyz) for how to get started.
+Baba Booey
