@@ -5,11 +5,11 @@ Raiding is cool and fun, here are all of my raid clears!  I've included everyone
 ## Savage
 
 #### Abyssos:
-- P5S - P7S: Forgot when I cleared, as they were in PF
+- P5S - P7S: Forgot Dates but cleared in PF
 - P8S: Cleared April 6, 2023
 
 Stranger Khai, Hellfari Mitnu, Rain Elyse, Neko Hiro, Cy Yhisa, Mandy Hakurei, Nv Kino
-![[P8S_4-6-23.png]]
+![[P8S.png]]
 
 #### Anabeseios:
 - P9S: Cleared June 6, 2023
@@ -18,6 +18,8 @@ Stranger Khai, Hellfari Mitnu, Rain Elyse, Neko Hiro, Cy Yhisa, Mandy Hakurei, N
 - P12S: Cleared October 12, 2023
 
 Stranger Khai, Hellfari Mitnu, Rain Elyse, Neko Hiro, Ashton Kindrae, Hrestris Niuwun, Mandy Hakurei, Nv Kino
+
+![[anabaseios.webp]]
 
 #### AAC Light-Heavyweight Tier:
 * M1S: Cleared August 1, 2024
