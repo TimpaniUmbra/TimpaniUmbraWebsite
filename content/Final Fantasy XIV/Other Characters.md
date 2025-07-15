@@ -11,6 +11,7 @@
 ## Tyym Bouryyne
 ![[tyymbouryyne.png]]
 *Tyym's shard from the 9th, and another wielder of the arts.  Specifically, this Tyym uses her love of painting to bring a unique flair to Solution 9, painting over the electrope-laden textures of the city.*
-* Created for OC/Lore reasons
+* Was originally made for a Halloween bit, with Fantasia on my main
+* Became a separate character for OC/Lore reasons
 * Caster-Focused (BLM/PCT)
 * I swear I made her before Sugar Riot existed, uh
