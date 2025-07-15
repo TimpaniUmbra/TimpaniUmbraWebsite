@@ -1,7 +1,5 @@
-[!info] Heads Up!
-
-Currently on hiatus from raiding: Turns out burnout is a bitch.  I may occasionally dip into PF or something, but for now I'm primarily chilling in FFXIV.
-
+>[!info] Heads Up!
+>Currently on hiatus from raiding; turns out burnout is a bitch.  I may occasionally dip into PF or something, but for now I'm primarily chilling in FFXIV.
 ## Savage
 #### Abyssos:
 - P5S - P7S: Forgot when I cleared, as they were in PF
