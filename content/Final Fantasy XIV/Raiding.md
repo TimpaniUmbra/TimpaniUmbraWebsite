@@ -29,6 +29,7 @@ Stranger Khai, Hellfari Mitnu, Rain Elyse, Neko Hiro, Ashton Kindrae, Hrestris N
 
 Stranger Khai, Hellfari Mitnu, Rain Elyse, Neko Hiro, Kiersch Hakurei, Hrestris Niuwun, Mandy Hakurei
 
+![[light-heavyweight.webp]]
 #### AAC Cruiserweight Tier:
 * M5S: Cleared April 3, 2025
 * M6S: Cleared May 27, 2025
@@ -37,16 +38,22 @@ Stranger Khai, Hellfari Mitnu, Rain Elyse, Neko Hiro, Kiersch Hakurei, Hrestris 
 
 Stranger Khai, Hellfari Mitnu, Rain Elyse, Neko Hiro, Kiersch Hakurei, Hrestris Niuwun, Mandy Hakurei, Riley Beau, Zira Zephyr, Aerria Lockhart
 
+![[cruiserweight.webp]]
 ## Ultimate
 * UCOB: Cleared May 15, 2024
 
 Stranger Khai, Hellfari Mitnu, Rain Elyse, Neko Hiro, Hrestris Niuwun, Mandy Hakurei, Nv Kino
+
+![[UCOB.png]]
 
 ## Criterion
 - AMR: Cleared September 20, 2023
 
 Stranger Khai, Neko Hiro, Mandy Hakurei
 
+![[rokkon.webp]]
 * AAI: Cleared December 20, 2023
 
 Stranger Khai, Neko Hiro, Mandy Hakurei
+
+![[aloalo.webp]]
