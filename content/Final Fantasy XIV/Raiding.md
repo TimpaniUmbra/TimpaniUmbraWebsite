@@ -9,7 +9,7 @@ Raiding is cool and fun, here are all of my raid clears!  I've included everyone
 - P8S: Cleared April 6, 2023
 
 Stranger Khai, Hellfari Mitnu, Rain Elyse, Neko Hiro, Cy Yhisa, Mandy Hakurei, Nv Kino
-![[P8S_4-6-23 1.png]]
+![[P8S_4-6-23.png]]
 
 #### Anabeseios:
 - P9S: Cleared June 6, 2023
