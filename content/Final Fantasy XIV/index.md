@@ -8,6 +8,7 @@ Nowadays I don't have great login streaks, as I like spreading my time across ma
 Tyym Paanih is my main so she'll be presented in greatest detail here.  The rest can be found at [[Other Characters]]
 ### Random Stats
 * Date Started: About September 11, 2021
+
 ![[firstAchievement.png]]
 * Main Job: DNC
 	* Secondary Jobs: WAR, SGE, RPR, PCT, BRD
