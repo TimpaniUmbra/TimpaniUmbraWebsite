@@ -49,7 +49,7 @@ Stranger Khai, Hellfari Mitnu, Rain Elyse, Neko Hiro, Hrestris Niuwun, Mandy Hak
 ## Criterion
 - AMR: Cleared September 20, 2023
 
-Stranger Khai, Neko Hiro, Mandy Hakurei
+Stranger Khai, Neko Hiro, Ashton Kindrae
 
 ![[rokkon.webp]]
 * AAI: Cleared December 20, 2023
