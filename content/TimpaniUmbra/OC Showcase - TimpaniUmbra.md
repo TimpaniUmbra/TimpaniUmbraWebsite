@@ -1,8 +1,9 @@
 *An elven bard dreamed of scouring the whole world to discover new people, new experiences, new songs.  Hopefully they'd be able to find themselves too.  After finding a strange pair of timpani mallets, they realized their world was so much greater than before.  And they could finally figure out who they were.*
 
-My little story for myself, with why I do what I do.  This is meant to be a culmination of a lot of things in myself, finding my identity and realizing who I really am and what I want to be.  While it won't impact streams much, I think it'd be fun to add to this more and more, as I grow and meet new friends!
+My little story for myself, with why I do what I do.  This is meant to be a culmination of a lot of things in myself, finding my identity and realizing who I really am and what I want to be.  While it won't impact streams much, I think it'd be fun to add to this more and more, as I grow and find new friends and experiences!
 
 ![[MatchaComm.jpg]]
+*Art by Matchaprince!*
 
 On their original world, Timpani was a bard and a chronic wanderer. They had a hard time sitting still, always wanting to see new people and things. It gave them more stories to tell and songs to sing about the beauty of their world. And it encouraged them to be prouder and prouder of who they were, as they told their own story alongside it.
 

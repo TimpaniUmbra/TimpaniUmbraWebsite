@@ -9,8 +9,9 @@ It's been wonderful to create this concert as I continue to find myself in this 
 
 So that's what this is for!  I'll document everything I can here for your (and my) reference!  I hope you enjoy!
 
-(We're still getting this ready for a 1.0 release, so please excuse the holes and random blank spots for now!)
+*(While most major things are here now, I'll be updating and adding more in the coming days!)*
 
 For creative-writing endeavors:
 - [[Final Fantasy XIV/OC Showcase - Tyym Paanih/index]]
 - [[OC Showcase - TimpaniUmbra]]
+- [[OC Showcase - Mafia Timpani]]

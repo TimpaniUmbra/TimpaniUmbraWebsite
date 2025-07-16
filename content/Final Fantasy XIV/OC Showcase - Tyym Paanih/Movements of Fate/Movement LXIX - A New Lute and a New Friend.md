@@ -1,3 +1,4 @@
+![[tyymLuteAndFriend.png]]
 During a particularly capricious trip to the Black Shroud, Tyym encountered a botanist being chased by a treant. As usual, she stepped in to help them out, grabbing its attention to fight it herself. This treant was more aggressive than most, however; though it went down, it managed to grab her lute as she was using it for magic, and smash it.  
 
 Tyym came out of the scuffle uninjured, but nearly inconsolable as a bard without her instrument. She’d had that lute since she started her journey, and it had been there for every adventure she found herself on. And here it was, smashed beyond repair in a matter of seconds. Fortunately the botanist was able to recommend a skilled woodworker they regularly visited, Jahleh Xurlhi; before they could offer to pay for the replacement lute, Tyym was gone and off to see her.  
