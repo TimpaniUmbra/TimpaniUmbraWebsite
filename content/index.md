@@ -1,7 +1,7 @@
 ---
 title: Timpani's Grand Concert
 ---
-Hi hi hi hi hi!!  Welcome to my concert!!
+Hi hi hi hi!!  Welcome to my concert!!
 
 I'm Timpani, or [[TimpaniUmbra/index]]!  I play bideo games, and somehow that's managed to snowball into a HUGE expansive concert of streaming, friends, art, and maybe a little storytelling!
 
