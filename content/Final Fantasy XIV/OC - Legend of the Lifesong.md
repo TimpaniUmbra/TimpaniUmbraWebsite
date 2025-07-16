@@ -1,1 +1,0 @@
-While the Warrior of Light is out saving the realm, a bard takes her own path to find her Lifesong.  Sometimes she helps the Scions, and sometimes she just does her own thing.  As long as she can help others and find the music in the world, she's happy.

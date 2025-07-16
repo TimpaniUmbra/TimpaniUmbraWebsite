@@ -2,7 +2,7 @@
 ![[viibafohne.png]]
 - Created for an old stream series, going through the MSQ again with a friend
 - Healer-focused (AST/SGE)
-- The least-defined in terms of an OC
+- The least-defined in terms of an OC (I can't decide what to do with him, hmmmmm...)
 ## Xaela Fohne
 ![[xaelafohne.png]]
 *She didn't WANT a life of adventure and fighting, really, but when her Inner Warrior forced her on the road, Xaela Fohne's life ended up becoming that.  She prefers to take on the role of caretaker, but has been learning that sometimes she can go all out to take care of those she cares about as well.  Plus, if it keeps her inner warrior in check...*
