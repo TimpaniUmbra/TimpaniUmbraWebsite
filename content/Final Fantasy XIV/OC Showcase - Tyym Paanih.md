@@ -4,16 +4,15 @@ While I'm not completely new to creating characters, Tyym was the first fully-fl
 
 ![[tyym1.png]]
 
-
-| Quick Facts     |                                                   |
-| --------------- | ------------------------------------------------- |
-| Age             | Mid 40s ***                                       |
-| Gender/Pronouns | Female, She/Her                                   |
-| Nameday         | 1st Sun of the 6th Umbral Moon                    |
-| Nationality     | Wildwood (Exact heritage is unknown)              |
-| Birthplace      | Ishgard                                           |
-| Residence       | None (Wanderer)                                   |
-| Occupations     | Bard/Dancer, Odd Jobs for hire                    |
-| Romance         | Single, Pansexual                                 |
-| Likes           | Music, Travel/Adventures, Helping Others, Stories |
-| Dislikes        | Large Crowds, Debts, Feeling Useless              |
+| Quick Facts     |                                                   |     |
+| --------------- | ------------------------------------------------- | --- |
+| Age             | Mid 40s ***                                       |     |
+| Gender/Pronouns | Female, She/Her                                   |     |
+| Nameday         | 1st Sun of the 6th Umbral Moon                    |     |
+| Nationality     | Wildwood (Exact heritage is unknown)              |     |
+| Birthplace      | Ishgard                                           |     |
+| Residence       | None (Wanderer)                                   |     |
+| Occupations     | Bard/Dancer, Odd Jobs for hire                    |     |
+| Romance         | Single, Pansexual                                 |     |
+| Likes           | Music, Travel/Adventures, Helping Others, Stories |     |
+| Dislikes        | Large Crowds, Debts, Feeling Useless              |     |
