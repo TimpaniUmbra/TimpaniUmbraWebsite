@@ -8,7 +8,7 @@ Raiding is cool and fun, here are all of my raid clears!  I've included everyone
 - P5S - P7S: Forgot Dates but cleared in PF
 - P8S: Cleared April 6, 2023
 
-Stranger Khai, Hellfari Mitnu, Rain Elyse, Neko Hiro, Cy Yhisa, Mandy Hakurei, Nv Kino
+Stranger Khai, Hellfari Mitnu, [[My Wonderful Friends#Rain|Rain Elyse]], Neko Hiro, Cy Yhisa, Mandy Hakurei, Nv Kino
 ![[P8S.png]]
 
 #### Anabeseios:
@@ -17,7 +17,7 @@ Stranger Khai, Hellfari Mitnu, Rain Elyse, Neko Hiro, Cy Yhisa, Mandy Hakurei, N
 - P11S: Cleared July 15, 2023
 - P12S: Cleared October 12, 2023
 
-Stranger Khai, Hellfari Mitnu, Rain Elyse, Neko Hiro, Ashton Kindrae, Hrestris Niuwun, Mandy Hakurei, Nv Kino
+Stranger Khai, Hellfari Mitnu, Rain Elyse, Neko Hiro, Ashton Kindrae, [[My Wonderful Friends#Heck|Hrestris Niuwun]], Mandy Hakurei, Nv Kino
 
 ![[anabaseios.webp]]
 
