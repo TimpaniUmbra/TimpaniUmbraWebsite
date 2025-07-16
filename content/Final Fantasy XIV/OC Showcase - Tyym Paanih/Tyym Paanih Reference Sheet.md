@@ -19,7 +19,7 @@ Glamour Set also on [Eorzea Collection](https://ffxiv.eorzeacollection.com/glamo
 - Timid, Awkward
 - Curious, Adventurous
 - Generally positive, optimistic, having fun
-- Full Personality in [[Final Fantasy XIV/OC Showcase - Tyym Paanih/index]]
+- Full Personality in [[Final Fantasy XIV/OC Showcase - Tyym Paanih/index|OC Showcase - Tyym Paanih]]
 
 ### Themes/Motifs/Associations:
 - Colors: Lavender (or other purples), Light Blue (or other blues), Maroon
