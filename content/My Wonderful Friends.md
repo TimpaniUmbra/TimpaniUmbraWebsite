@@ -10,7 +10,7 @@ The concert features so many friends, all of whom have helped me find my rhythm 
 ### Heck
 * He/Him
 * [Bluesky](https://bsky.app/profile/heccogecco.bsky.social) || [KoFi](https://ko-fi.com/heccogecco)
-### Mey
+### Meyumii
 * She/Her
 * [Twitch](https://www.twitch.tv/meyumii) || [Website](https://meyumiidoodles.carrd.co/)
 ### Moe

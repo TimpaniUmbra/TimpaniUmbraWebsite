@@ -1,1 +1,0 @@
-Among a city filled with the scars of rivalry, conflict, and possibly the esoteric, one figure's made their claim by helping everyone.  All they ask for?  Knowledge, and a good show.

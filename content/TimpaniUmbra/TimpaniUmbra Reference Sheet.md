@@ -1,6 +1,8 @@
 >[!info] Heads Up!
 >My official reference sheet is in the works.  In the meantime I've done the best I can to describe my appearance for you, and provide examples!
 
+![[timpaniUmbraRefComms.jpg]]
+
 Base model: [[Tyym Paanih Reference Sheet]]
 
 From there, I'm plus sized!  
@@ -26,3 +28,6 @@ General Themes/Elements to consider:
 - Little Guys (can be characters from games or irl little guys)  
 - Comfy Things  
 - Food/Drink (Cocoa is a really good option!)
+
+Other features that will be added to the ref sheet more cleanly:
+![[timpaniReferences.jpg]]
