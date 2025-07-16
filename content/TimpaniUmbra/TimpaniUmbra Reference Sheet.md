@@ -13,6 +13,7 @@ From there, I'm plus sized!
 * To be frank, no fetish content; that's not what we're doing, I'm just chubby.
 
 Other elements to note:  
+* I wear a maroon ribbon around one ear.  It can be tied around the ear or in the hair surrounding the ear, whatever's better for your interpretation/art style.  The above examples show both options.
 * From my lore, I often have timpani mallets that glow purple. They can be used for creating gates between universes, or creating percussion instruments to play. They also emanate umbral (purple/black) energy.  
 * You can swap my eye colors if you want. I don't have a specific reason, I just think that would be funny if they were different on different art pieces/models.  
 * Please don't give me BEEG BOOBA; keep it reasonable and make sure it matches the body size  
