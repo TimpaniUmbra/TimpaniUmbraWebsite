@@ -1,5 +1,7 @@
 ---
 title: Timpani's Grand Concert
+aliases:
+  - Timpani's Grand Concert
 ---
 Hi hi hi hi!!  Welcome to my concert!!
 

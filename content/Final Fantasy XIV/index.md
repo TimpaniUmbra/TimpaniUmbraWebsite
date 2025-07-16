@@ -1,5 +1,7 @@
 ---
 title: Final Fantasy XIV
+aliases:
+  - Final Fantasy XIV
 ---
 Final Fantasy XIV has meant so much to me since I started it in 2021.  During a time where I wasn't at my greatest, it helped me to find myself, figure out more of who I was, create community, and push myself in ways I didn't think I could have before.
 

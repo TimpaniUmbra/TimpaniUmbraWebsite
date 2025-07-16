@@ -1,3 +1,8 @@
+---
+title: TimpaniUmbra
+aliases:
+  - TimpaniUmbra
+---
 This is my truest form, so to speak!  I play a **lot** of games, and I have a lot of fun talking about them and sharing my thoughts and experiences with others.  I love finding new ways to express myself too, like learning art and technical skills as I go.  I'm most often on Twitch and Bluesky, though I'll often find other places to yap as well!
 
 ## Inspiration
