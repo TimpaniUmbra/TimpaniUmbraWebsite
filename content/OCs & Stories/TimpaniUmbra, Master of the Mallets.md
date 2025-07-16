@@ -1,1 +1,0 @@
-An elven bard dreamed of scouring the whole world to discover new people, new experiences, new songs.  Hopefully they'd be able to find themselves too.  After finding a strange pair of timpani mallets, they realized their world was so much greater than before.  And they could finally figure out who they were.

@@ -7,7 +7,7 @@ Nowadays I don't have great login streaks, as I like spreading my time across ma
 
 Tyym Paanih is my main so she'll be presented in greatest detail here.  The rest can be found at [[Other Characters]]
 
-![[tyympaanih.png]]
+![[tyympaanihFull.png]]
 ### Random Stats
 * Date Started: About September 11, 2021
 
