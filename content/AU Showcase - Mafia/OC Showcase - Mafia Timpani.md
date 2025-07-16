@@ -1,5 +1,8 @@
-![[mafiaTimpani_small.png]]*Art from Shiki!*
+*Among a city filled with the scars of rivalry, conflict, and possibly the esoteric, one figure's made their claim by helping everyone.  All they ask for?  Knowledge, and a good show.*
 
+![[mafiaTimpani_small.png]]*Art from [[My Wonderful Friends#shiki|Shiki]]!*
+
+---
 ## Basic Info
 
 |                                                              |                                                        |
@@ -44,12 +47,22 @@
 #### Fears:
 - Being alone
 - People seeing their pain
-## Relationships
-- **Bimu:** Of all customers, Timpani knows they won’t be able to get any “special deals” out of Bimu.  They aren’t afraid, really, and are charmed by her strength and commitment.  Just… Bimu’s the one character to NOT up the ante on, when making a deal.  She also seems to eye Timpani a lot… or at least their outfit, what’s wrong with it?
-- **Moe:** Always a welcome sight in their shop.  Seems to be the most attuned with the supernatural (besides them, they claim), and Timpani LOVES seeing what else they can learn from Moe’s experiences.  He also provides the most interesting requests for them to deal with, and it’s always a joy to fulfill them!  Of course, it doesn’t hurt that he’s the easiest to upcharge without him knowing, either…
-- **Shiki:** The rarest direct visitor to the shop, usually making requests by phone or through digital means.  If Shiki shows up in person, something’s REALLY wrong (and/or things are about to get really fun!)  Timpani’s interested to know more about how this one ticks.  (They certainly seem more interesting the more Timpani learns about them!) But there’s nothing to be done if they don’t show themselves as much (that’s a lie btw, Timpani can find a way)
-- **Ren:** “So he’s alive, huh?  This could be fun… and lucrative :)”
 
+---
+## Relationships
+
+#### Bimu
+Of all customers, Timpani knows they won’t be able to get any “special deals” out of Bimu.  They aren’t afraid, really, and are charmed by her strength and commitment.  Just… Bimu’s the one character to NOT up the ante on, when making a deal.  She also seems to eye Timpani a lot… or at least their outfit, what’s wrong with it?
+
+#### Moe
+Always a welcome sight in their shop.  Seems to be the most attuned with the supernatural (besides them, they claim), and Timpani LOVES seeing what else they can learn from Moe’s experiences.  He also provides the most interesting requests for them to deal with, and it’s always a joy to fulfill them!  Of course, it doesn’t hurt that he’s the easiest to upcharge without him knowing, either…
+
+#### Shiki
+The rarest direct visitor to the shop, usually making requests by phone or through digital means.  If Shiki shows up in person, something’s REALLY wrong (and/or things are about to get really fun!)  Timpani’s interested to know more about how this one ticks.  (They certainly seem more interesting the more Timpani learns about them!) But there’s nothing to be done if they don’t show themselves as much (that’s a lie btw, Timpani can find a way)
+
+#### Ren
+“So he’s alive, huh?  This could be fun… and lucrative :)”
+#### Others
 * Generally amicable with everyone who does business with them, regardless of their allegiance and as long as they can do business fairly (on Timpani’s terms)
 * Squirrels commonly show up around the shop; their exact correlation is unknown, but Timpani treats them like pets/friends.
 * No romantic partners or sexual history
@@ -58,6 +71,7 @@
 * Hates talking about family; one of the few topics they explicitly avoid discussing.
 * There's probably someone out there trying to figure out their true nature.  Not that there's much to go off of...
 
+---
 ## Skills and Status
 * Exact skill/power levels unknown, and they don’t fight in the open often so it’s hard to know.
 * Vast wealth of knowledge on firearms, weapons, and other tools
@@ -78,6 +92,7 @@
 #### Criminal Record
 - Most likely a grand thief and has probably committed other crimes alongside this, but no one can confirm if this is true as they never show any evidence of actually being present at any heists.
 
+---
 ## Other Info
 - Definitely some ties to the void, but that can also just be a catch-all for how they get everything their customers want.  I like the idea of it being an unexplainable eldritch thing, unconnected to the usual lore.
 - Musical Themes:
