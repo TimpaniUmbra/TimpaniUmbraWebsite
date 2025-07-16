@@ -14,7 +14,7 @@ The concert features so many friends, all of whom have helped me find my rhythm 
 * She/Her
 * [Twitch](https://www.twitch.tv/meyumii) || [Website](https://meyumiidoodles.carrd.co/)
 ### Moe
-* He/Him
+* He/They
 * [Bluesky](https://bsky.app/profile/moewolf.bsky.social) || [Twitch](https://www.twitch.tv/moe_wolf)
 ### Mylk
 * She/They
