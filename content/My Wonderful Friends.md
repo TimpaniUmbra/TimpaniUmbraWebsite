@@ -53,7 +53,7 @@ The concert features so many friends, all of whom have helped me find my rhythm 
 - Their intense passions are infectious and make me more passionate for what I love
 ### Soapy 
 * She/Her
-* [Bluesky](https://bsky.app/profile/soapy5296.bsky.social) || [Twitch]([www.twitch.tv/soapy5296](https://www.twitch.tv/soapy5296))
+* [Bluesky](https://bsky.app/profile/soapy5296.bsky.social) || [Twitch](https://www.twitch.tv/soapy5296)
 * How the hell do you use this umbrella so well
 * Contagious positivity and joy for life, makes me feel more confident all the time
 ### Yuna
