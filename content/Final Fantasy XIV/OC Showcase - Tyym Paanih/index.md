@@ -65,7 +65,7 @@ Eventually, the time came where Tyym was officially able to set out on her own. 
 #### Current Wherabouts
 At the moment, Tyym is still on the road as usual, as her adventures continue to shape her character and life. She’s still pretty awkward and reserved, but she’s made more meaningful relationships and is improving her socializing abilities. When she isn’t helping someone out or with friends, she’s commonly off to the side playing some song or another. Though it’s usually a chance to center herself and chill, she’s always happy to play for an impromptu audience!
 
-See the __ for more stories and adventures!
+See the [[Final Fantasy XIV/OC Showcase - Tyym Paanih/Movements of Fate/index|Movements of Fate]] for more stories and adventures!
 
 ## Relationships
 * Parents: The pair are still alive and traveling together. In rare moments the whole family crosses paths, but they normally hear good tidings through the whisperings of those who saw them before.
