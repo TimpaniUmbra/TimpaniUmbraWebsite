@@ -2,7 +2,6 @@ The concert features so many friends, all of whom have helped me find my rhythm 
 
 *This list is in alphabetical order*
 ### Bimu
-![[plushes.png]]
 - She/Her
 - [Bluesky](https://bsky.app/profile/bimuu.bsky.social) || [Twitch](https://www.twitch.tv/bimuu_) || [Website](https://bimuu.uwu.ai/)
 - Terrifying gacha luck
