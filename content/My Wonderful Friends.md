@@ -4,8 +4,8 @@ The concert features so many friends, all of whom have helped me find my rhythm 
 ### Bimu
 - She/Her
 - [Bluesky](https://bsky.app/profile/bimuu.bsky.social) || [Twitch](https://www.twitch.tv/bimuu_) || [Website](https://bimuu.uwu.ai/)
-- Terrifying gacha luck
-- So much fun, brightens a room/stream for sure
+- We make each other 80% louder when we're within a close proximity of each other
+- So much fun and I love when we can be silly together
 ### Caribou
 * He/Him
 * He won't give me a thing to link to, so I just tell people to go watch Domino Masters
