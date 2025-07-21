@@ -61,8 +61,3 @@ The concert features so many friends, all of whom have helped me find my rhythm 
 * [Bluesky](https://bsky.app/profile/yunanoire.bsky.social) || [Twitch](https://www.twitch.tv/yunanoire)
 * Tenna Fan Club co-founder
 * Well-read and sharp with words, I LOVE her takes on games
-### Zarithya
-* She/Her
-* [Bluesky](https://bsky.app/profile/zarithya.online) || [Twitch](https://bsky.app/profile/zarithya.online)
-* The rare person that actually knows more than half of the stupid references I make
-* Wicked smart with tech, every time we talk she's cooked up something new
