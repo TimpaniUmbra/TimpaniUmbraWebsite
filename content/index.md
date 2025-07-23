@@ -24,5 +24,8 @@ So that's what this is for!  I'll document everything I can here for your (and m
 - [[OC Showcase - TimpaniUmbra|TimpaniUmbra (My Streamer Lore)]]
 - [[AU Showcase - Mafia/index|The Mafia Project (AU)]]
 - [[Final Fantasy XIV/OC Showcase - Tyym Paanih/index|Tyym Paanih's Lifesong (FFXIV OC)]]
+### Game Photography
+- [[Photo Series - Junelezen 2024|Junelezen 2024]]
+- [[Photo Series - Elftober 2024|Elftober 2024]]
 ### Game-Specific Zones:
 - [[Final Fantasy XIV/index|Final Fantasy XIV]]
