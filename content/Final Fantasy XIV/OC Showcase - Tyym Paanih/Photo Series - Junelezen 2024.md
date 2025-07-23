@@ -1,4 +1,6 @@
-This was a GPose project created for Junelezen 2024.  I decided to make it a large, interconnected story with a random adventure that Tyym Paanih actually went on at some point in time.
+# An Adventure with Tyym
+
+This was a GPose project created for Junelezen 2024.  This was the first time I really shared a bunch of stuff about her, and wanted to make a large story that would also share her personality a bit more.
 
 ### Day 1: Hello
 *Howdy!!  This is Tyym Paanih, and she's getting ready to go on one of her unplanned adventures.  She doesn't know where she's going, but she's excited to find something new!*
