@@ -1,6 +1,6 @@
 # A Fall in Tural
 
->[!info] Heads Up!
+>[!warning] Spoiler Warning!
 >LOTS of Spoilers for Dawntrail on this page!!!
 
 This was a GPose project created for Elftober 2024.  With Dawntrail fully released, I wanted to challenge myself to only take pictures within Dawntrail areas.  This led to creating a bunch of little stories of Timpani's actual adventures in Tural.  A lot of them are independent from each other, but you can see little plots throughout!
