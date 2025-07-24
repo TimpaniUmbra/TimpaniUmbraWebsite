@@ -2,31 +2,32 @@ Since my original stream model was just my FFXIV character, art at this point me
 
 ![[shikiPride.jpg|400]]
 ![[shikiEmotes.jpg|400]]
-*From Shiki*
+*From [[My Wonderful Friends#Shiki|Shiki]]*
 
 ![[matchaprinceMamoolJa.jpg|400]]
 ![[matchaprinceChewyChristmas.jpg|400]]
-*From matchaprince*
+*From [matchaprince](https://vgen.co/matchaprince)*
 
+![[heckTimpani.jpg|400]]
 ![[heckXaelaFohne.jpg|400]]
-*From Heck*
-* From an idea to stream savage raiding that didn't pan out, but I continued using the plush regardless!
+*From [[My Wonderful Friends#Heck|Heck]]*
+* The plush is from an idea to stream savage raiding that didn't pan out, but I continued using the plush regardless!
 
 ![[dreaminlilo.jpg|400]]
-*From dreamin_lilo*
+*From [dreamin_lilo](https://vgen.co/dreamin_lilo)*
 * My first non-chibi model!
 
 ![[meowpricot.jpg|400]]
-*From meowpricot*
+*From [meowpricot](vgen.co/meowpricot)*
 
 ![[tacoReviews.jpg|400]]
-*From TacoReviews*
+*From [TacoReviews](https://ko-fi.com/knifedears)*
 
 ![[whiona.jpg|400]]
-*From whiona*
+*From [whiona](https://bsky.app/profile/whiona.me)*
 
 ![[quick.jpg|400]]
-*From Quick*
+*From [Quick](https://bsky.app/profile/quickalas.bsky.social)*
 
 ![[froggercube.jpg|400]]
-*From froggercube*
+*From [froggercube](https://vgen.co/froggercube)*

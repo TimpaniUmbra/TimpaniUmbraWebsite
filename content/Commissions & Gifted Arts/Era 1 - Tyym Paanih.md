@@ -1,7 +1,7 @@
 At this point I wasn't streaming, I just had FFXIV.  I started seeing how other people would get nice art of their characters and wanted to get a bunch of them myself!  I was introduced to Skeb and we went from there.
 
 ![[janmen.jpg|400]]
-*From janmen*
+*From [janmen](https://www.tumblr.com/janmen-portfolio)*
 - My first commission ever!
 
 ![[mmmofuni.jpg|400]]
@@ -25,13 +25,15 @@ At this point I wasn't streaming, I just had FFXIV.  I started seeing how other 
 *From かりん*
 
 ![[matchaprince.jpg|400]]
-*From matchaprince*
+*From [matchaprince](https://vgen.co/matchaprince)*
 
 ![[mo_518_mo.gif|400]]
 *From Mo_518_Mo*
 
 ![[bimu.jpg|400]]
-*From Bimu*
+*From [[My Wonderful Friends#Bimu|Bimu]]*
 
 ![[heckEmotes.jpg|400]]
-*From Heck*
+![[heckStatic.jpg|400]]
+![[heckTyym.jpg|400]]
+*From [[My Wonderful Friends#Heck|Heck]]*
