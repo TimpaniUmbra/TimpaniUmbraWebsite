@@ -141,7 +141,7 @@ A few of these are considered non-canon, and these have been labelled on the pro
 ### Day 29: Surprise (Follow-Up to Day 12)
 *"Seeing the serpent's ruins may have been my favorite adventure in Tural so far!  I just hope that little serpent is okay, it left without a-WAAH!"*
 
-![[elftober30.jpg]]
+![[elftober29.jpg]]
 ### Day 30: Cave
 *A sudden dust storm forced Tyym into a nearby cave for shelter.  Good thing there's cool stuff to see inside!*
 
