@@ -20,3 +20,18 @@ At this point I wasn't streaming, I just had FFXIV.  I started seeing how other 
 
 ![[miame.jpg|400]]
 *From miame*
+
+![[かりん.jpg|400]]
+*From かりん*
+
+![[matchaprince.jpg|400]]
+*From matchaprince*
+
+![[mo_518_mo.gif|400]]
+*From Mo_518_Mo*
+
+![[bimu.jpg|400]]
+*From Bimu*
+
+![[heckEmotes.jpg|400]]
+*From Heck*
