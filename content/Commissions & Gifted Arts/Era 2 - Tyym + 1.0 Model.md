@@ -1,0 +1,1 @@
+Since my original stream model was just my FFXIV character, art at this point melded together more.  But I generally started getting art that involved the games I like over things specifically related to FFXIV, as I started streaming more things.

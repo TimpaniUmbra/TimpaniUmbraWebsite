@@ -1,0 +1,1 @@
+This is when I started getting my new (plus-size) look, and I sweapped moreoso to getting comms for my streamer persona over anything else.  I've also been finding a lot more friends and trusted artists to keep getting comms from; especially as I find artists who are comfortable with drawing plus-sized characters.

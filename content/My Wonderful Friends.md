@@ -81,7 +81,7 @@ The concert features so many friends, all of whom have helped me find my rhythm 
 *Using a temp model for forbidden reasons*
 ### Yuna
 * She/They
-* [Bluesky](https://bsky.app/profile/yunanoire.bsky.social) || [Twitch](https://www.twitch.tv/yunanoire)
+* [Bluesky](https://bsky.app/profile/yunanoire.bsky.social) || [Twitch](https://www.twitch.tv/yunanoire) || [Blog](https://yunanoire.com/)
 * Tenna Fan Club co-founder
 * Well-read and sharp with words, I LOVE her takes on games
 
