@@ -1,4 +1,4 @@
-This is when I started getting my new (plus-size) look, and I sweapped moreoso to getting comms for my streamer persona over anything else.  I've also been finding a lot more friends and trusted artists to keep getting comms from; especially as I find artists who are comfortable with drawing plus-sized characters.
+This is when I started getting my new (plus-size) look, and I swapped moreoso to getting comms for my streamer persona over anything else.  I've also been finding a lot more friends and trusted artists to keep getting comms from; especially as I find artists who are comfortable with drawing plus-sized characters.
 
 ![[matchaprinceWhimsicott.jpg|400]]
 *From [matchaprince](https://vgen.co/matchaprince)*
@@ -6,7 +6,7 @@ This is when I started getting my new (plus-size) look, and I sweapped moreoso t
 
 ![[shikiModels.jpg|400]]
 ![[shikiMafia.jpg|400]]
-*From [[My Wonderful Friends#Shiki|Shiki]]
+*From [[My Wonderful Friends#Shiki|Shiki]]*
 - More models, yippee!!
 
 ![[ace.jpg|400]]
