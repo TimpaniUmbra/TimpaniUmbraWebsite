@@ -18,7 +18,7 @@ Since my original stream model was just my FFXIV character, art at this point me
 * My first non-chibi model!
 
 ![[meowpricot.jpg|400]]
-*From [meowpricot](vgen.co/meowpricot)*
+*From [meowpricot](https://vgen.co/meowpricot)*
 
 ![[tacoReviews.jpg|400]]
 *From [TacoReviews](https://ko-fi.com/knifedears)*
