@@ -27,5 +27,7 @@ So that's what this is for!  I'll document everything I can here for your (and m
 ### Game Photography
 - [[Photo Series - Junelezen 2024|Junelezen 2024]]
 - [[Photo Series - Elftober 2024|Elftober 2024]]
+- [[Photo Series - Yokai|FFXIV x Yokai]]
+- [[Photo Series - LVL 100s|FFXIV LVL 100s]]
 ### Game-Specific Zones:
 - [[Final Fantasy XIV/index|Final Fantasy XIV]]
