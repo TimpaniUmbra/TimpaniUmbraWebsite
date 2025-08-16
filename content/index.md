@@ -22,9 +22,11 @@ So that's what this is for!  I'll document everything I can here for your (and m
 	- Generally I don't want to see NSFW things with my characters without my permission; please contact me first if that is a thing you're considering.
 ### Creative Writing:
 - [[OC Showcase - TimpaniUmbra|TimpaniUmbra (My Streamer Lore)]]
-- [[TimpaniUmbra/Timpani's Universal Etudes/index|Timpani's Universal Etudes (Extended Streamer Lore/Stories)]]
+- [[TimpaniUmbra/Timpani's Universal Etudes/index|Timpani's Universal Etudes (Extended Streamer Lore And Stories)]]
 - [[AU Showcase - Mafia/index|The Mafia Project (AU)]]
 - [[Final Fantasy XIV/OC Showcase - Tyym Paanih/index|Tyym Paanih's Lifesong (FFXIV OC)]]
+### Art:
+- All of that is listed at [[My Art!/index|My Art!]]
 ### Game Photography
 - [[Photo Series - Junelezen 2024|Junelezen 2024]]
 - [[Photo Series - Elftober 2024|Elftober 2024]]
