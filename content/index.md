@@ -31,3 +31,5 @@ So that's what this is for!  I'll document everything I can here for your (and m
 - [[Photo Series - LVL 100s|FFXIV LVL 100s]]
 ### Game-Specific Zones:
 - [[Final Fantasy XIV/index|Final Fantasy XIV]]
+
+![[Update Log#Latest Updates]]
