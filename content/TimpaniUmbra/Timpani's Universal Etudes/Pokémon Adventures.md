@@ -7,6 +7,7 @@ As a gym member:
 - Whimsicott
 - Leafeon
 - Sprigatito
+
 On other adventures:
 - The above 3
 - Chandelure
