@@ -6,3 +6,5 @@ Page for site updates!  It goes from oldest to newest, so that the newest one ca
 - Created [[TimpaniUmbra/Timpani's Universal Etudes/index|Timpani's Universal Etudes]], [[Pokémon Adventures]]
 - Created [[My Art!/index|My Art!]], [[Stream Promos]], [[Deltarune Homies]], [[Fan Art]]
 - Created [[The Void Stop]]
+- Updated [[Photo Series - Junelezen 2024]]
+	- Added better references to friends featured

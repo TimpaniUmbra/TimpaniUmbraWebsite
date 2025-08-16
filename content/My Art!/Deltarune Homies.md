@@ -5,4 +5,4 @@ I don't really know why I started this, but I ended up making myself into Ralsei
 ![[funGang.jpg]]
 - Ralsei - Timpani (me)
 - Kris - [[My Wonderful Friends#Yuna|Yuna]]
-- Susie - [[My Wonderful Friends#Soapy|Soapy]] (hidden for reasons beyond your understanding, please be patient)
+- Susie - [[My Wonderful Friends#Soapy|Soapy]] 

@@ -58,6 +58,8 @@ This was a GPose project created for Junelezen 2024.  This was the first time I 
 ### Day 13: New Aquaintance
 *Arriving in Kugane, Tyym meets an adventurer who looks a little low-energy.  Luckily, she has enough money to grab some food for both of them, and the two enjoy a chance to get to know each other.*
 
+*Featuring friend Khai, and their character Stranger Khai!*
+
 ![[junelezen13.jpg]]
 ### Day 14: Waystop
 *Tyym was set to head out of Kugane by now, but, uh... there was some cool stuff at the markets, so she stopped on the way to the airship port.*
@@ -112,7 +114,7 @@ This was a GPose project created for Junelezen 2024.  This was the first time I 
 
 ![[junelezen24.jpg]]
 ### Day 25: Old Friend 
-*Reaching Ishgard, Tyym managed to find her friend A'rhenu Tia!  The two have known each other for a while and find each other on their adventures a lot.*
+*Reaching Ishgard, Tyym managed to find her friend [[My Wonderful Friends#Caribou|A'rhenu Tia]]!  The two have known each other for a while and find each other on their adventures a lot.*
 
 *A'rhenu's going to see his old mentor, so Tyym joins him to the Shrouds.*
 
@@ -137,5 +139,7 @@ This was a GPose project created for Junelezen 2024.  This was the first time I 
 ![[junelezen29.jpg]]
 ### Day 30: Free Choice - Dawntrail
 *It's been so much fun participating in my first Junelezen, and I'm proud of myself for making it all the way through!  Thank y'all for joining as well, it meant a lot to share this month with everyone!  Have fun in Dawntrail, like I am with my friends as you see this!*
+
+*Featuring friend Legano, and his character Ifora Kanraz'dan*
 
 ![[junelezen30.jpg]]
