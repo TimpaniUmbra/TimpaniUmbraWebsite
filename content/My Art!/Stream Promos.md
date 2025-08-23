@@ -30,3 +30,6 @@ I have WAY too many if I were to share them ALL here.  So I decided to share my 
 
 ![[weWereHereToo.jpg]]
 *Good storytelling, I think (Tablet)*
+
+![[PEAK.jpg]]
+*I really love drawing friends, plus I enjoyed getting creative in our... unfortunate situations (Tablet)*

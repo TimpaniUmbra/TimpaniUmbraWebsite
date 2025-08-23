@@ -31,3 +31,6 @@ Since my original stream model was just my FFXIV character, art at this point me
 
 ![[froggercube.jpg|400]]
 *From [froggercube](https://vgen.co/froggercube)*
+
+![[aguichart.jpg|400]]
+*From [aguichart](https://bsky.app/profile/aguichart.bsky.social)*

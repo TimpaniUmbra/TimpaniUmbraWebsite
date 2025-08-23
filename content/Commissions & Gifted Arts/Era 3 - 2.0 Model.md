@@ -31,3 +31,13 @@ This is when I started getting my new (plus-size) look, and I swapped moreoso to
 *From [[My Wonderful Friends#Moe|Moe]]*
 - Moe made this nice room for me in My Dream Setup, it's perfect!
 
+![[meyumii2.jpg|400]]
+*From [[My Wonderful Friends#Meyumii|Meyumii]]*
+
+![[yumiitsu.jpg|400]]
+*From [Yumiitsu](https://vgen.co/Yumiitsu)*
+* Created for PEAK streams with friends, from a new YCH that Yumiitsu recently created!
+
+![[shikifishing.jpg|400]]
+*From [[My Wonderful Friends#Shiki|Shiki]]*
+- Created based on a fun [Webfishing stream](https://youtu.be/T8C62qC0Wsc?si=1oOE0gv6pkI2sy5F)!  (Also featuring WORM)
