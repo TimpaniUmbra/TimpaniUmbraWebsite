@@ -36,12 +36,12 @@ The Eevee remained unevolved for a time, as the two got used to each other and b
 
 Leafeon is very playful, constantly batting at Timpani and goading them into running around and playing together.  She likes when the team goes out on the road to make new memories.  She is really attached to specific items for the memories associated with them; her toys and other items are well-used but taken very good care of by her (and by Timpani).
 
-##### Chadelure
-One night, a brave Lampent went on a spree of attempting to [steal souls from even people that clearly weren't near death](https://bulbapedia.bulbagarden.net/wiki/Lampent_(Pok%C3%A9mon)#Pok%C3%A9dex_entries).  he did scare most of them, though generally unsuccessful at stealing any souls.  Timpani ended up being one of his targets, and he was even less successful, not even phasing her.  Angry that he couldn't even scare her, he began trying to attack her, leading to a Pokémon battle that led to her capturing it.  
+##### Chandelure
+One night, a brave Lampent went on a spree of attempting to [steal souls from even people that clearly weren't near death](https://bulbapedia.bulbagarden.net/wiki/Lampent_(Pok%C3%A9mon)#Pok%C3%A9dex_entries).  he did scare most of them, though generally unsuccessful at stealing any souls.  Timpani ended up being one of his targets, and he was even less successful, not even phasing her.  Angry that he couldn't even scare her, he began trying to attack her, leading to a Pokémon battle that led to her capturing him.  
 
-While Timpani knew they couldn't use him in the gym, they were happy to have a new friend (hopefully) and have a variety of Pokémon in the world.  The Lampent eventually mellowed out, enjoying being with Timpani, and became a valuable ally as it got stronger.  Eventually Timpani found a Dusk Stone, and the Lampent was able to become a Chandelure!
+While Timpani knew they couldn't use him in the gym, they were happy to have a new friend (hopefully) and have a variety of Pokémon in the world.  The Lampent eventually mellowed out, enjoying being with Timpani, and became a valuable ally as he got stronger.  Eventually Timpani found a Dusk Stone, and the Lampent was able to become a Chandelure!
 
-After being on the team for a while, Chandelure has become a very chill Pokémon, enjoying relaxing.  It will work hard when needed, but ONLY when needed.  Presumably, having a found family made him lose the edge he had while trying to steal souls on its own, and he's enjoyed getting to live a happier life with Timpani and her crew.
+After being on the team for a while, Chandelure has become a very chill Pokémon, enjoying relaxing.  He'll work hard when needed, but ONLY when needed.  Presumably, having a found family made him lose the edge he had while trying to steal souls on its own, and he's enjoyed getting to live a happier life with Timpani and her crew.
 
 ##### Mimikyu
 Mimikyu began following Timpani for a bit, and it took a while for her to realize he was there.  Besides being shy, he was curious about the aura Timpani seemed to have, recognizing their umbral energy and thinking it similar to his ghostly form under the costume.  
