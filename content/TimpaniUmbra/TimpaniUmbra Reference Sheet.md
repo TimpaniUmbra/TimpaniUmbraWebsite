@@ -5,7 +5,7 @@
 
 Full Version, with NSFW content (elf in underwear), below:
 > [!info]- NSFW
-![[timpani nsfw full ref (full jpg).jpg]]
+>![[timpani nsfw full ref (full jpg).jpg]]
 
 *Reference Sheets by [[My Wonderful Friends#Mylk|Mylk!!]]*
 
