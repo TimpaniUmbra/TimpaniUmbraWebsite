@@ -33,3 +33,6 @@ I have WAY too many if I were to share them ALL here.  So I decided to share my 
 
 ![[PEAK.jpg]]
 *I really love drawing friends, plus I enjoyed getting creative in our... unfortunate situations (Tablet)*
+
+![[FFIX-9.jpg]]
+*I went into this one with like half a plan but it ended up way better than I thought it could be, for drawing the huge Alexander (Tablet)*

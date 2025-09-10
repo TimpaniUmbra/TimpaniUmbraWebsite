@@ -15,10 +15,17 @@ Page for site updates!  It goes from oldest to newest, so that the newest one ca
 	- Most recent art pieces added
 - Updated [[Stream Promos]]
 	- Added another art piece 
-# Latest Updates
 
 2025-08-31
 - Updated [[The Void Stop]]
 	- Added sketches to clarify a few details
 - Updated [[Pokémon Adventures]]
 	- Created introductions for each of Timpani's Pokémon
+# Latest Updates
+
+2025-09-10
+- Created [[Pokemon TTRPG/index|Pokemon TTRPG]], [[OC Showcase - Anita Cosia]]
+- Updated [[Stream Promos]]
+	- Added more art
+- Updated [[TimpaniUmbra Reference Sheet]]
+	- Added OFFICIAL REFERENCE SHEET, and adjusted other notes based on that.

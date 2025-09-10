@@ -5,8 +5,8 @@
 ---
 ## Basic Info
 
-|                                                              |                                                        |
-| ------------------------------------------------------------ | ------------------------------------------------------ |
+|                                                                  |                                                        |
+| ---------------------------------------------------------------- | ------------------------------------------------------ |
 | **Gender/Pronouns**                                              | Nonbinary, They/Them                                   |
 | **Zodiac**                                                       | Sagittarius                                            |
 | **Birthplace**                                                   | Unknown                                                |
@@ -18,8 +18,8 @@
 | **Race**                                                         | Theoretically Human (ignore the ears)                  |
 | **Markings**                                                     | Cheek Tattoos, Light body scarring (usually covered)   |
 | **Other characteristics**                                        | Plus Size/Pear Body Shape                              |
-|                                                              | Always wearing a beret                                 |
-|                                                              | Mole on upper chin                                     |
+|                                                                  | Always wearing a beret                                 |
+|                                                                  | Mole on upper chin                                     |
 | **Age, Birthdate, Height, Weight, Blood Type, "Pants Contents"** | "You gotta pay a whole hell of a lot for that info..." |
 ## Personality
 * Cheerful and silly, no matter the topic

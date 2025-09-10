@@ -24,6 +24,7 @@ So that's what this is for!  I'll document everything I can here for your (and m
 - [[OC Showcase - TimpaniUmbra|TimpaniUmbra (My Streamer Lore)]]
 - [[TimpaniUmbra/Timpani's Universal Etudes/index|Timpani's Universal Etudes (Extended Streamer Lore And Stories)]]
 - [[AU Showcase - Mafia/index|The Mafia Project (AU)]]
+- [[OC Showcase - Anita Cosia|Pokemon TTRPG Writing]]
 - [[Final Fantasy XIV/OC Showcase - Tyym Paanih/index|Tyym Paanih's Lifesong (FFXIV OC)]]
 ### Art:
 - All of that is listed at [[My Art!/index|My Art!]]
