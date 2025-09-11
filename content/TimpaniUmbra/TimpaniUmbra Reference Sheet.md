@@ -7,7 +7,7 @@ Full Version, with NSFW content (elf in underwear), below:
 > [!info]- NSFW
 >![[timpani nsfw full ref (full jpg).jpg]]
 
-*Reference Sheets by [[My Wonderful Friends#Mylk|Mylk!!]]*
+*Reference Sheets by [[My Wonderful Friends#Mylk|Mylk!!]]  You can also download them, and higher-quality versions of them, from [this Google Drive folder](https://drive.google.com/drive/folders/104y7Q03DZnpDLnBDsnr-fensjn4HuLF7?usp=sharing).*
 
 Additional Notes:
  - You may draw me fatter if you would like, but not too fat  
