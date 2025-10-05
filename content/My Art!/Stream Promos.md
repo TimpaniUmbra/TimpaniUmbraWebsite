@@ -36,3 +36,12 @@ I have WAY too many if I were to share them ALL here.  So I decided to share my 
 
 ![[FFIX-9.jpg]]
 *I went into this one with like half a plan but it ended up way better than I thought it could be, for drawing the huge Alexander (Tablet)*
+
+![[metroidDread.jpg]]
+*"Yeah lets try drawing an EMMI, that can't be complicated" (Tablet)*
+
+![[hollowKnight-5.jpg]]
+*I'm really happy with this one for both the aura/perspective experiment, and for how stupid (silly) the concept is (Tablet)*
+
+![[kirbyForgottenLand-5.jpg]]
+*I really like ALL the Kirby ones I've done, but the chill happy vibes of this one make me happy too (Tablet)*

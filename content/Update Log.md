@@ -21,7 +21,6 @@ Page for site updates!  It goes from oldest to newest, so that the newest one ca
 	- Added sketches to clarify a few details
 - Updated [[Pokémon Adventures]]
 	- Created introductions for each of Timpani's Pokémon
-# Latest Updates
 
 2025-09-10
 - Created [[Pokemon TTRPG/index|Pokemon TTRPG]], [[OC Showcase - Anita Cosia]]
@@ -29,3 +28,19 @@ Page for site updates!  It goes from oldest to newest, so that the newest one ca
 	- Added more art
 - Updated [[TimpaniUmbra Reference Sheet]]
 	- Added OFFICIAL REFERENCE SHEET, and adjusted other notes based on that.
+# Latest Updates
+
+2024-10-04
+- Created [[Session Doodles]]
+	- Doodles from sessions of the related Pokemon TTRPG.
+- -Created [[Era 4 - Post-Reference Sheet]]
+	- Made a new section for art commissions/gifts after the ref sheet was made
+	- I'm probably overthinking the need for eras but
+	- I like organizing :)
+- Created [[Photo Projects/index|Photo Projects]], [[Rosalina's World Tour]]
+	- Photo Projects holds series of photos from various games
+	- Rosalina's World Tour holds all of the Mario Kart World images from that series (currently days 1-10 have been added)
+- Updated [[My Art!/index|My Art!]], [[Fan Art]], [[Stream Promos]]
+	- More art added!
+- Updated [[index|Main Page]]
+	- Added the art I made to pin on Bluesky

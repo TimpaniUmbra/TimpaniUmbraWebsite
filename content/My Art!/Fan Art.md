@@ -4,3 +4,6 @@ Art that's specifically like, created for another streamer/friend/creator/etc an
 
 ![[bimupigeon.jpg]]
 *Created for [[My Wonderful Friends#Bimu|Bimu's]] Hatoful Boyfriend stream (and VA session with me, [[My Wonderful Friends#Moe|Moe]], [[My Wonderful Friends#Shiki|Shiki]], and [[My Wonderful Friends#Ren|Ren]]) (Tablet)*
+
+![[yunaTurnip.jpg]]
+*Inspired by [[My Wonderful Friends#Yuna|Yuna's]] GBA streams, mainly when she played Mario Advance (Tablet)*
