@@ -33,7 +33,7 @@ Page for site updates!  It goes from oldest to newest, so that the newest one ca
 2024-10-04
 - Created [[Session Doodles]]
 	- Doodles from sessions of the related Pokemon TTRPG.
-- -Created [[Era 4 - Post-Reference Sheet]]
+- Created [[Era 4 - Post-Reference Sheet]]
 	- Made a new section for art commissions/gifts after the ref sheet was made
 	- I'm probably overthinking the need for eras but
 	- I like organizing :)
