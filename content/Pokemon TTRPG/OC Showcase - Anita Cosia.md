@@ -106,6 +106,7 @@ Eevee's small stature and speed are useful in battle, though he often uses this 
 Eevee isn't against evolution but hasn't found the right spirit to do so yet (explaining why he isn't an Espeon or Umbreon, let alone the other ones that require a stone).  Maybe he'll be ready during Anita's coming adventures, but only time will tell.
 
 *Updates made during the campaign*
+
 After so much time together, Anita and Eevee have a great rapport and are able to understand each other very well even with a language barrier on Anita's end.  Eevee has a good understanding of theatrics to be able to let Anita know of various things, and has reminded Anita of important information that she forgot on their adventures through pantomime.
 
 Eevee sees himself as the primary tenant of Anita's hair, getting mad when other Pokémon enter it even by accident.
@@ -118,6 +119,7 @@ Combee is a very silly and jolly Pokémon, happily buzzing around when it's meal
 Combee has a massive sweet tooth and will try to add sweet flavors to any and every dish.  Even if the dish really doesn't need it... thankfully Eevee keeps a good eye out for any wayward honey or similar ingredients.  This does make Combee a wonder at locating more unique flavors in the wild.  Always helpful for a sweet treat!
 
 *Updates made during the campaign*
+
 Combee's silliness translates to her battle style, where she commonly adds theatrics into her moves.  She will play up attacks as bits, such as Bug-Biting in more comical fashions ala old cartoons.
 #### Lillipup
 One night, when closing up the restaurant, Anita found a Lillipup rummaging through the trash for scraps.  Seeing he was really hungry, she decided to give him the leftovers she was going to take home.  The Lillipup was incredibly grateful for the meal!  While eating, Anita decided to take the Lillipup home with her, and he ended up officially joining her team!
