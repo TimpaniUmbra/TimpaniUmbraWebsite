@@ -28,9 +28,8 @@ Page for site updates!  It goes from oldest to newest, so that the newest one ca
 	- Added more art
 - Updated [[TimpaniUmbra Reference Sheet]]
 	- Added OFFICIAL REFERENCE SHEET, and adjusted other notes based on that.
-# Latest Updates
 
-2024-10-04
+2025-10-04
 - Created [[Session Doodles]]
 	- Doodles from sessions of the related Pokemon TTRPG.
 - Created [[Era 4 - Post-Reference Sheet]]
@@ -44,3 +43,16 @@ Page for site updates!  It goes from oldest to newest, so that the newest one ca
 	- More art added!
 - Updated [[index|Main Page]]
 	- Added the art I made to pin on Bluesky
+# Latest Updates
+2025-10-13
+- Updated [[OC Showcase - Anita Cosia]]
+	- Updated with everything up to the October 12, 2025 session
+		- Story Summary
+		- New Character developments, including previously-caught Pokémon
+		- Newly Caught Pokémon
+- Updated [[Session Doodles]]
+	- More Art!
+- Created [[Streaming Assets]]
+	- Showing off things I create for streams.  Currently holds Emotes and Models I've made.
+- Updated [[Rosalina's World Tour]]
+	- Added days 11-20

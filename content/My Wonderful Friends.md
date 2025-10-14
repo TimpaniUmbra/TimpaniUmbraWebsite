@@ -15,6 +15,12 @@ The concert features so many friends, all of whom have helped me find my rhythm 
 * Helped me become louder and more confident in myself
 
 ![[caribouPlush.png]]
+### Froob
+- She/They
+- [Bluesky](https://bsky.app/profile/froobe.bsky.social)
+- meowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeow
+- Partner in Trans
+![[froobPlush.png]]
 ### Haru
 * She/Her
 * [Twitch](https://www.twitch.tv/haru_kosmos)
@@ -29,6 +35,13 @@ The concert features so many friends, all of whom have helped me find my rhythm 
 * Makes me want to defeat evil people (does that make sense)
 
 ![[heckPlush.png]]
+
+### Java
+- He/Him
+- [Twitch](https://www.twitch.tv/lividjava) | [Website](https://lividjava.xyz/)
+- Mutes me in chat for fun (I usually deserve it)
+- Technical whiz, has helped me make my own streams better
+![[javaPlush.png]]
 ### Meyumii
 * She/Her
 * [Twitch](https://www.twitch.tv/meyumii) || [Website](https://meyumiidoodles.carrd.co/)
