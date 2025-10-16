@@ -24,8 +24,3 @@ So simply put, I made her fat.
 IRL I was getting over some... very bad eating habits as I'd become a little too obsessed with being thinner.  As I began to figure myself out in terms of gender, it also came with being more comfortable in my own skin even if I was a little plus-sized (and staying active, of course!).  To mark this, I decided to experiment with making my streaming persona chubby, and after a successful first commission I realized this was the path I wanted to take with it.
 
 So yes, the base model does come from FFXIV.  However, I've been making updates to my lore and appearance to separate from that, and just be me!
-## Da Links
-* [Twitch](https://www.twitch.tv/timpaniumbra)- Where I play bideo game and yap LIVE, for YOU, the VIEWER, or SOMETHING
-* [Youtube](https://www.youtube.com/@TimpaniUmbra) - The VODs all end up here, plus edited highlights for moments that I really enjoyed.  Other random garbage sometimes appears!
-* [Bluesky](https://bsky.app/profile/timpaniumbra.xyz) - I call this "Controlled Yapping" but I don't know if that's correct either, I'm just as strange over there.
-* [Backloggd](https://backloggd.com/u/TimpaniUmbra/) - I LOVE logging the games I play, and this has also been a good chance to try my hand at writing about them!

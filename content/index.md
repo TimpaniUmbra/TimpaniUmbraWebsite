@@ -7,13 +7,17 @@ aliases:
 
 Hi hi hi hi!!  Welcome to my concert!!
 
-I'm Timpani (They/Them), or [[TimpaniUmbra/index|TimpaniUmbra]]!  I play bideo games, and somehow that's managed to snowball into an expansive concert of streaming, friends, art, and maybe a little storytelling!
+I'm Timpani (They/She), or [[TimpaniUmbra/index|TimpaniUmbra]]!  I play bideo games, and somehow that's managed to snowball into an expansive concert of streaming, friends, art, and maybe a little storytelling!
 
 It's been wonderful to create this concert as I continue to find myself in this world (and hopefully be there for others as they find themselves too).  Though there's... certainly a lot now, oh woah...
 
 So that's what this is for!  I'll document everything I can here for your (and my) reference!  I hope you enjoy!
+### I'm also on:
+* [Twitch](https://www.twitch.tv/timpaniumbra)- Where I play bideo game and yap LIVE, for YOU, the VIEWER, or SOMETHING
+* [Youtube](https://www.youtube.com/@TimpaniUmbra) - The VODs all end up here, plus edited highlights for moments that I really enjoyed.  Other random garbage sometimes appears!
+* [Bluesky](https://bsky.app/profile/timpaniumbra.xyz) - I call this "Controlled Yapping" but I don't know if that's correct either, I'm just as strange over there.
+* [Backloggd](https://backloggd.com/u/TimpaniUmbra/) - I LOVE logging the games I play, and this has also been a good chance to try my hand at writing about them!
 
-*(While most major things are here now, I'll be updating and adding more in the coming days!)*
 ### Wiki Rules:
 - Be cringe, be free, but don't be a dick
 - Let me know if there are any errors on this site.  I wanna make the best experience for everyone!
