@@ -1,7 +1,7 @@
 ![[anitaCosia.jpg]]
 *A chef on a quest to find new flavors and foods, while proving herself worthy of her passions.  With her Pokémon and her friends, she's ready to cook up a storm in the Pokémon world!*
 
-*All information is up to date as of October 12, 2025, after Session 5.*
+*All information is up to date as of October 18, 2025, after Session 6.*
 
 ## General Information
 
@@ -25,6 +25,7 @@
 | Favorite Food                | Sweets                                                                                                                                         |
 |                              | Anything she cooks                                                                                                                             |
 |                              | Anything her dad cooks                                                                                                                         |
+|                              | In particular, her dad had a recipe for Eeveelution-themed custard pastries that she loved very much growing up.                               |
 
 ---
 ## Backstory
@@ -76,7 +77,7 @@ As she and her friends rested and recovered in her hotel, they all came to an ag
 The next morning, when the others headed off on their own errands, Anita realized she suddenly had an additional Pokémon: a Tynamo from the Poké ball retrieved from the grunt she and Combee knocked out.  Since her and Selene needed to speak further with the Rangers on their Stygian run-in, she decided to check with them on this Pokémon's owner.
 
 #### Professor Olive, and New Goals
-At the Ranger's office, Selene and Anita gave their accounts of the events that had transpired the previous night, making extra sure to leave out Rio's name since he was still, for all intents, a criminal.  During this, they learned that the Tynamo had actually belonged to the grunt; Anita decided to keep of the Pokémon and keep an eye out for the original owner while promising to give her a good home in the interim (and beyond if needed).
+At the Ranger's office, Selene and Anita gave their accounts of the events that had transpired the previous night, making extra sure to leave out Rio's name since he was still, for all intents, a criminal.  During this, they learned that the Tynamo had actually belonged to the grunt; Anita decided to keep the Pokémon and keep an eye out for the original owner while promising to give her a good home in the interim (and beyond if needed).
 
 The regional professor, Olive, was also present during the meeting with the Rangers, and afterward asked to meet with the *three* of them at his lab.  Wary, the party decided to meet with him to see what he had to say.  While he was, frankly, weird and kinda creepy, he agreed to sponsor the three of them, giving them all Pokedexes to take into the world and begin learning more about Pokémon with.  This also helped Selene out, as she had been planning to begin her Pokémon League journey in Turffield.  
 
@@ -90,6 +91,31 @@ During this big battle, a Sprigatito showed up to Anita, trying to find a playma
 After all their battling, the party decided to take a break and have a picnic!  Anita began working with the new mushroom she'd been given, and the three friends talked some about everything that had happened and their new goals.  Anita took some time to meet Sprigatito, and thought about her new goals as a master Culinarian.  She vocalized her newly-cleared-up dreams to her friends, as Rio introduced his new goal as a Contest participant.  Additionally, as Selene gave her fears about training her Pokémon, especially as she and her Pichu butted heads, Anita and Rio reminded her how her Pichu would always be there for her, as he was in the caves when he worked hard to save her with Anita.
 
 Before they could eat, however, a massive Braviary swooped down, startling everyone.  Pichu became riled up and attacked it, and in retaliation it *grabbed* Pichu and flew off.  Selene ran after it, Rio attempted to convince his Serperior to help catch the bird with his speed (to no avail, as it was a newly captured Pokémon and not used to Rio yet), and Anita was simply shocked at the whole ordeal, as she had been cooking as well.
+
+Thankfully Lillipup was willing to help, quickly getting to work and using his powerful nose to immediately grab Pichu's sent and track where he was taken.  Rio and Anita caught up with Selene, and the three began their quest to find Pichu.  Lillipup kept up a good trail (unlike Anita, who at one point grabbed a lemon thinking it could possibly be Pichu), and the gang quickly found a massive tree, and the nest of the Braviary.  
+
+As they had hoped, Pichu was there, along with the Braviary and... another guy?  This mystery figure was in battle with the bird, holding on to the weak Pichu.  Wasting no time, the gang joined the fight, with Rio and Anita providing additional offensive support while Selene got Pichu back into his Poké ball.  The combined forces managed to get the Braviary to retreat, at least long enough for the trio to meet their mystery trainer.  
+
+Or rather, remember him: This was Aurel, a classmate from the Uva Academy.  He'd attempted to be closer friends with the group, but for one reason or another it just never worked out then.  And here he was now, considerably older and more rugged than before.  He talked down to Selene regarding her Pichu, and general acted as though he had everything under control before stealing an egg from the Braviary's nest.  
+
+Suddenly the bird returned, and ANOTHER Braviary appeared from the other side of the tree.  One began to lift the nest out of the tree, while the other attempted to knock the tree down to destroy all of the intruders in one fell swoop.  The party initially tried to stop them, using their Pokémon and with Selene stalling it using a Poke ball, but this ended up failing and the tree began to fall.  Our trio managed to escape unharmed, with Anita somehow having the most effective escape while Selene had to be pulled up from the cliffside.  However, Aurel was unlucky; as he fell, he threw the Braviary egg to Anita, and his Espurr to Selene.
+
+The gang knew they had to try and help save him, which would be a multi-stage task with one of the Braviary still present and violent.  Thankfully Selene had a few ideas.  She sent a small party of Morelull and Espurr, riding on Golbat, to seek out Aurel and attempt to heal him if necessary.  To keep them safe, their other Pokémon distracted the Braviary by leading it towards the cliff they were at using their attacks.  Once baited, in an incredible gamble, Venipede used Rollout down the cliff, slamming into the Braviary in a knockout blow and ending their troubles then and there.
+
+The gang knew this was their chance to check for Aurel, and they all went down the tree with Selene first going to retrieve Venipede.  Rio and Anita managed to find Aurel, who against all odds was totally fine!  He hadn't even needed the Morelull's assistance, and looked good as new.  Anita gave him the egg back, and with Espurr back as well he headed off on his own adventures.  Rio and Anita were still really confused about him, but Anita had a feeling they'd see him soon enough.
+
+The two met up with Selene and... well, not Venipede.  The extreme Rollout ended up being what Venipede needed for evolving, and it became a Whirlipede before their eyes!  With their new wheel buddy, the trio headed off, hungrier than ever and ready to actually have their interrupted picnic.
+
+#### More New Friends
+At last, the party was able to have a little more time to themselves, actually getting to have their picnic and relax.  While Rio and Selene had time with their own Pokémon teams, Anita got to work FINALLY putting that big mushroom to use.  Her usual cooking team got to work, and she made sure to offer her new Tynamo and Sprigatito the chance to join in her favorite family activity, if they wanted.  Sprigatito, understandably, was still more comfy sitting to the side, though closer than before.  Tynamo, however, was ready to experiment; she was able to bring a "lightningy" flavor to the meal that Anita had never tried before, and was very excited to build on in the future!
+
+The trainers and all their Pokémon had a great meal, and were able to catch up on the events of the day.  Selene was still a little shocked after her large emotional journey that day, but everyone was just happy that they were all safe, and proud of their Pokémon for working hard to save Pichu.  Rio mentioned that his new Serperior had maybe warmed up to his Carvanha a bit too, good news after their cold meeting.  They also hyped Selene up, with Anita especially in awe of her friends and how hard they worked and how cool they were.
+
+After some yapping, the gang decided to check out all the Pokémon nearby, each with their own desires to, possibly, catch some more.  For Anita, she remembered her feelings when catching Sprigatito and realized she would have to get more used to battling to see her goals become a reality.  So, she pointed at a Munchlax and challenged it to battle!  However, the Munchlax simply ran up to her and started trying to grab her bag for food.  First shocked and annoyed, she then realized she had an easy in with this little dude.  She gave him some of the leftovers from the picnic, and promised him more if he joined her. (The Munchlax did end up nearly eating her hand through this.)  She then held out a Poke ball to show her intention to catch him.  The Munchlax then ate the Poké ball, activating it and catching himself... which somehow worked!  Thus, Anita had a new, very hungry, friend!
+
+Anita and the party excitedly talked about their new catches, with Selene catching a Growlith (Hisuian) and Rio nabbing a Sneasel (Hisuian).  Well... Selene was excited, Rio was distraught that he accidentally made his catch faint, and since it went back to the box... he was ready to start heading home.  It was getting late and the sun was setting, so the entire party decided it was a good time to head out.
+
+They all returned to Turffield and to the Pokémon Center to heal up from the day and meet their new Pokémon better, but there was one more surprise... the Tauros from the Stygian Cave was suddenly in Rio's box!  It was given to Rio after it didn't have a willing owner to go back to.  The trio got to re-meet the big guy, and then finally go get their rest.
 
 *To be continued...*
 
@@ -144,8 +170,16 @@ During the raid on Team Stygian's Turffield hideout, Anita obtained Tynamo's Pok
 
 Anita decided to keep Tynamo, deciding that she'd be better off with her team than with the Pokémon Rangers.  Rio also noted that Tynamo would probably be better off with her than her original grunt owner.  Anita has at least decided to keep an eye out for Tynamo's original owner, though confident in giving her a good home and team if that never comes to pass.
 
-Tynamo is a curious and excitable little Pokemon, always ready to investigate new findings.  She often does this with taste, choosing to nibble on new discoveries more often than anything else.  This also includes peoples' fingers, which she sometimes has to be removed from.
+Tynamo is a curious and excitable little Pokémon, always ready to investigate new findings.  She often does this with taste, choosing to nibble on new discoveries more often than anything else.  This also includes peoples' fingers, which she sometimes has to be removed from.
+
 #### Sprigatito
 Sprigatito originally appeared to Anita outside of Turffield, simply wanting to play.  While Anita quickly became attached to the little cat and wanted to add it to her team, the usual peaceful methods didn't really work as intended.  Instead, a misunderstanding led to a quarrel with Eevee, and eventually a Pokémon battle.  Anita managed to battle and catch Sprigatito, making him Anita's first Pokémon actually caught through this method.
 
-Sprigatito has just joined the team, and is still getting used to Anita and her friends, Pokemon or human.  Not used to a Pokemon caught this way, Anita is doing all she can to show him that he's a loved member of her party as much as anyone else.  He at least seems content, and is enjoying her snacks!
+Sprigatito has just joined the team, and is still getting used to Anita and her friends, Pokémon or human.  Not used to a Pokémon caught this way, Anita is doing all she can to show him that he's a loved member of her party as much as anyone else.  He at least seems content, and is enjoying her snacks!
+
+#### Munchlax
+After the Pichu rescue, the gang had a picnic around some local Pokémon.  Anita was determined to try and battle again, to catch another Pokémon for friendship and culinary research.  A Munchlax caught her eye, and she triumphantly called it to battle.  The Munchlax simply walked up to her and began trying to grab for her snack-laden bags.  She realized what it wanted and decided to go back to her usual plan: convince it to join with food.
+
+Anita gave him some food, and her offer: more food IF he joined her in her culinary research.  She confidently held out a Poke ball as part of the offer.  He then... ate the Poke ball, catching himself in the process.
+
+Anita's still trying to process if this was done intentionally or if he was just blindly driven by food.  She's also still trying to figure out how smart in general he is, and how much he just... wants more food.  Regardless, she's excited to cook for him and see what she can learn!

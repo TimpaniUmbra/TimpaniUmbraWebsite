@@ -1,6 +1,3 @@
->[!info] Heads Up!
->My official reference sheet is in the works.  In the meantime I've done the best I can to describe my appearance for you, and provide examples!
-
 ![[timpani SFW (full jpg).jpg]]
 
 Full Version, with NSFW content (elf in underwear), below:
@@ -12,17 +9,31 @@ Full Version, with NSFW content (elf in underwear), below:
 Additional Notes:
  - You may draw me fatter if you would like, but not too fat  
  - Do not draw me any thinner; the above is the minimum size
- - You can swap my eye colors if you want. I don't have a specific reason, I just think that would be funny if they were different on different art pieces/models.  
  - Please don't give me BEEG BOOBA; keep it reasonable and make sure it matches the body size
- - No NSFW unless I request something specific (or you contact me and get a green light on a concept)  
- - To be frank, no fetish content; that's not what we're doing, I'm just chubby.
+ - You can swap my eye colors if you want. I don't have a specific reason, I just think that would be funny if they were different on different art pieces/models.  
+ - To be frank, no fetish content; that's not what we're doing, I'm just a fat lady.
 
-General Themes/Elements to consider:  
-- Colors: Purple, Black, Blue  
-- Space/Stars  
-- Void/Umbral  
-- Music/Instruments (especially percussion)  
-- Nature/Trees/Forest  
-- Little Guys (can be characters from games or irl little guys)  
-- Comfy Things  
-- Food/Drink (Cocoa is a really good option!)
+Vibe Ideas:
+- Colors: Purple, Black, Blue, Maroon
+- Void/Umbral
+	- I tend to represent this as either space-adjacent, or dark purple with music elements, or a combination of the two.  The reference sheet shows this idea better.
+- Music/Instruments:
+	- Primarily Percussion
+	- Timpani/Kettle Drums are my favorite, I do also know it can be hard to make that work since they are beeg, so I'm not super picky
+- Nature/Trees/Forest
+	- Winter variations of the above are really nice, especially
+- Little Guys (can be characters from games or irl little guys)
+	- For irl little guys, Squirrels are a great option
+	- For Pokémon, the [[Pokémon Adventures]] page has some of my favorites
+- Comfy Things:
+	- Plush Furniture (Beds/Couches)
+	- Cushions/Pillows/Blankets
+	- Can use any of the other things in these lists here (ex. cushions based on percussion or Pokémon or other elements)
+- Food/Drink
+	- Cocoa
+	- Desserts, mainly pastries/cookies
+	- Cider (Alcoholic or not)
+- Pride
+	- Standard Pride Flag
+	- Trans Pride
+	- Pansexual Pride

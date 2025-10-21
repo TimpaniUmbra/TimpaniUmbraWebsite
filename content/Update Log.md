@@ -43,7 +43,7 @@ Page for site updates!  It goes from oldest to newest, so that the newest one ca
 	- More art added!
 - Updated [[index|Main Page]]
 	- Added the art I made to pin on Bluesky
-# Latest Updates
+
 2025-10-13
 - Updated [[OC Showcase - Anita Cosia]]
 	- Updated with everything up to the October 12, 2025 session
@@ -56,3 +56,13 @@ Page for site updates!  It goes from oldest to newest, so that the newest one ca
 	- Showing off things I create for streams.  Currently holds Emotes and Models I've made.
 - Updated [[Rosalina's World Tour]]
 	- Added days 11-20
+# Latest Updates
+2025-10-20
+- Created [[Reviews/index|Reviews]]
+	- Section for longer reviews, as I experiment with my writing style and formatting
+- Created [[Kirby and the Forgotten Land + Star-Crossed World]]
+	- Copied over the review from Backloggd, and updated it with some edits and additional info
+- Updated [[OC Showcase - Anita Cosia]], [[Session Doodles]]
+	- New Story, and another new Pokémon!
+- Updated [[TimpaniUmbra Reference Sheet]]
+	- New details and potential motifs/objects for inspiration
