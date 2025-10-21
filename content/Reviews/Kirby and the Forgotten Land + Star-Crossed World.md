@@ -14,7 +14,7 @@
 
 ---
 
-If you didn't know, Kirby has had a bit of history attempting 3D games.  The GameCube almost featured a 3D Kirby game, but the development was scrapped fairly quickly.$^1$  Later on, the 3DS got the first actual 3D Kirby titles, though they were much simpler than any true Kirby adventure.$^2$$^3$$^4$ Getting the full 3D experience was a long time coming, especially when the Switch continued to get primarily 2D experiences.
+If you didn't know, Kirby has had a bit of history attempting 3D games.  The GameCube almost featured a 3D Kirby game, but the development was scrapped fairly quickly.$^1$  Later on, the 3DS got the first actual 3D Kirby titles, though they were much simpler than any true Kirby adventure.$^2$ $^3$ $^4$ Getting the full 3D experience was a long time coming, especially when the Switch continued to get primarily 2D experiences.
 
 Seeing the original release of Forgotten Land those 5 years ago was magical, watching all of their previous work finally come to fruition.  And after all this time, it's still insane to me how much they **nailed** Kirby's first 3D experience. It manages to translate all the best parts of Kirby into a new dimension, creating a wonderful experience and a solid new step for the franchise. 
 
