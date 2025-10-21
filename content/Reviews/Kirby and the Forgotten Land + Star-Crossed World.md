@@ -61,6 +61,9 @@ As I mentioned, if you don't already have a Switch 2 then don't worry about this
 ---
 ### References
 $^1$ [Iwata Asks: Kirby's Return to Dream Land](https://iwataasks.nintendo.com/interviews/wii/kirby-dream-land/0/0/)
+
 $^2$ [Kirby 3D Rumble](https://youtu.be/1QxSpWnYe_Q?si=qW77lPIIaiWfwL_P)
+
 $^3$ [Kirby's Blowout Blast](https://youtu.be/qZjQaHmQlzg?si=yTjnEVIZl0HPxUDz)
+
 $^4$ [Kirby Battle Royale.](https://youtu.be/GX_YVeGns_E?si=dPy3QlVYY3OKatn3)
