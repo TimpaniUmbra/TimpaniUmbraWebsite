@@ -1,16 +1,15 @@
 ![[kirbyForgottenLand (3).jpg]]
 *All those times HAL tried to make 3D Kirby finally pay off, and they pay off spectacularly.*
 
-| Rating     | 5/5                           |
-| ---------- | ----------------------------- |
 | Developers | HAL Laboratory, Vanpool       |
+| ---------- | ----------------------------- |
 | Publisher  | Nintendo                      |
 | Releases   | 2022-03-25                    |
 |            | 2025-08-28 (Expansion)        |
 | Systems    | Nintendo Switch               |
 |            | Nintendo Switch 2 (Expansion) |
 | Played On  | Both                          |
-*(This rating applies to the game both with or without the Star-Crossed World expansion; unless specified, anything mentioned in this review applies to both the base game and the expansion content.)*
+*(Unless specified, anything mentioned in this review applies to both the base game and the expansion content.)*
 
 ---
 

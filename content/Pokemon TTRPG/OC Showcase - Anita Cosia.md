@@ -26,7 +26,9 @@
 |                              | Anything she cooks                                                                                                                             |
 |                              | Anything her dad cooks                                                                                                                         |
 |                              | In particular, her dad had a recipe for Eeveelution-themed custard pastries that she loved very much growing up.                               |
-
+#### Soundtrack
+- Battle Theme: [Via Dolce (ARMS)](https://youtu.be/M-8us8ifKfY?si=JU_IZprnZFZWS-7a "https://youtu.be/M-8us8ifKfY?si=JU_IZprnZFZWS-7a")
+- Overworld Theme: [Welcome to Yoshi's Island (Mario RPG)](https://youtu.be/mgKBbosPFNw?si=0WWXnz4SIrrmtCrZ "https://youtu.be/mgKBbosPFNw?si=0WWXnz4SIrrmtCrZ")
 ---
 ## Backstory
 

@@ -56,7 +56,7 @@ Page for site updates!  It goes from oldest to newest, so that the newest one ca
 	- Showing off things I create for streams.  Currently holds Emotes and Models I've made.
 - Updated [[Rosalina's World Tour]]
 	- Added days 11-20
-# Latest Updates
+
 2025-10-20
 - Created [[Reviews/index|Reviews]]
 	- Section for longer reviews, as I experiment with my writing style and formatting
@@ -66,3 +66,13 @@ Page for site updates!  It goes from oldest to newest, so that the newest one ca
 	- New Story, and another new Pokémon!
 - Updated [[TimpaniUmbra Reference Sheet]]
 	- New details and potential motifs/objects for inspiration
+# Latest Updates
+2025-10-22
+- General new rule for [[Reviews/index|Reviews]]: No actual ratings
+	- My rating scale is so all over the place, I'd rather just say what I like and don't like about a game.
+- Created [[Jackbox]]
+	- Reviewing ALL of the games in EVERY pack that I've played
+	- Currently features Party Pack 3, Drawful 2, Survey Scramble
+- Updated [[TimpaniUmbra Reference Sheet]]
+	- New details, and added a bunch of Pokemon as inspiration
+	- This will probably be happening for a while, I wanna add more details/ideas for people to work with for Skeb-style comms
