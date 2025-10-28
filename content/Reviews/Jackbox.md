@@ -81,11 +81,13 @@ Admittedly I don't have a lot of experience with this game compared to the other
 - Game Type: Text Prompt
 
 ![[Quiplash 3.png]]
+
 More Quiplash, more Quiplash, yippeeeeeeeeeee!!  Generally this game is the same as it's predecessor, so it's just as fun and silly as before.  I do think the new final round, where you have to make a list of three things for a single question, isn't the best idea?  It's not THAT much harder to work with but I'd rather have just seen the previous Quiplash's final challenge, where everyone writes for the same prompt.  This doesn't ruin a great overall experience though, and it's plenty fun as usual!
 #### Champ'd Up
 - Game Type: Art
 
 ![[Champ'd Up.png]]
+
 I really love the "Choose your fighter" aspect of this game, where you have a more concrete goal to draw for but are still very free to do whatever.  It's clever that only one person in a matchup knows the actual prompt as well.  It makes the resulting fights goofier and more exciting.  The ability to continue using old drawings, *including across multiple games,* is a lot of fun and really adds to the exciting matchups when you can switch them in and out as desired.  You can also buy *cards for a card game* with your fighters, that's so silly!  I haven't yet, waiting for the golden round for that, but I LOVE that idea.
 
 ---
