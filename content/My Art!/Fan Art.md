@@ -7,3 +7,6 @@ Art that's specifically like, created for another streamer/friend/creator/etc an
 
 ![[yunaTurnip.jpg]]
 *Inspired by [[My Wonderful Friends#Yuna|Yuna's]] GBA streams, mainly when she played Mario Advance (Tablet)*
+
+![[soapyPaint.jpg]]
+*Created for Soapy's Chicory Playthrough (Tablet)*

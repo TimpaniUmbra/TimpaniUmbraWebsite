@@ -66,7 +66,7 @@ Page for site updates!  It goes from oldest to newest, so that the newest one ca
 	- New Story, and another new Pokémon!
 - Updated [[TimpaniUmbra Reference Sheet]]
 	- New details and potential motifs/objects for inspiration
-# Latest Updates
+
 2025-10-22
 - General new rule for [[Reviews/index|Reviews]]: No actual ratings
 	- My rating scale is so all over the place, I'd rather just say what I like and don't like about a game.
@@ -76,3 +76,19 @@ Page for site updates!  It goes from oldest to newest, so that the newest one ca
 - Updated [[TimpaniUmbra Reference Sheet]]
 	- New details, and added a bunch of Pokemon as inspiration
 	- This will probably be happening for a while, I wanna add more details/ideas for people to work with for Skeb-style comms
+# Latest Updates
+2025-10-28
+- Updated [[Jackbox]]
+	- Added Party Packs 6 and 7, Naughty Pack, Jackbox Party Starter
+- Updated [[OC Showcase - Anita Cosia]], [[Session Doodles]]
+	- Dividing the overall story into better chapters; I think that'll make it easier to parse and look for events
+	- Fleshed out an earlier section into a full chapter, The Mushroom Interlude
+	- Added a part of "New Battles and New Friends" that was missing, as it became important in the new chapters
+	- New Chapters: Carnival Games and The Turffield Bully
+	- Evolution!!!
+	- Split up some of the doodles and added them throughout the story
+	- New Doodle Sheet
+- Updated [[TimpaniUmbra Reference Sheet]]
+	- Added a large list of little guys as potential inspiration
+- Updated [[My Art!/index|My Art!]], [[Stream Promos]], [[Streaming Assets]], [[Fan Art]]
+	- A lil bit more art

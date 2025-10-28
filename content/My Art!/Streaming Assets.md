@@ -20,6 +20,16 @@ I've started making my own streaming assets when I get inspiration!  This is whe
 *timpaniBlush*
 ![[timpanE.png|200]]
 *timpaniE*
+
+
+![[timpaniPeek.png|200]]
+*timpaniPeek, adapted from a silly Jackbox Night promo*
+
+![[timpaniJackPls.gif]]
+*timpaniJackDance, basically retooling the little dancing jack'o'lanterns from Deltarune's Jackenstein fight.*
+
+![[timpaniSMH.gif]]
+*timpaniSMH, I wasn't sure if this is really worth adding since it's just adding a beret to an existing emote but I figured I may as well*
 ## PNG Models
 ![[timpaniMagolorPreview.jpg|300]]
 *Magolor Model, created for Halloween 2025*

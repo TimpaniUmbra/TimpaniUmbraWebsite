@@ -45,3 +45,6 @@ I have WAY too many if I were to share them ALL here.  So I decided to share my 
 
 ![[kirbyForgottenLand-5.jpg]]
 *I really like ALL the Kirby ones I've done, but the chill happy vibes of this one make me happy too (Tablet)*
+
+![[deadEstate.jpg]]
+*I've been enjoying the witch vibes more than I thought I would (Tablet)*

@@ -24,8 +24,8 @@ Full Version, with NSFW content (elf in underwear), below:
 	- Timpani/Kettle Drums are my favorite, I do also know it can be hard to make that work since they are beeg, so I'm not super picky
 - Nature/Trees/Forest
 	- Winter variations of the above are really nice, especially
-- Little Guys (can be characters from games or irl little guys)
-	- For irl little guys, Squirrels are a great option
+- Little Guys (Examples Below)
+	- Can also be animals, like squirrels
 - Comfy Things:
 	- Plush Furniture (Beds/Couches)
 	- Cushions/Pillows/Blankets
@@ -33,7 +33,7 @@ Full Version, with NSFW content (elf in underwear), below:
 - Food/Drink
 	- Cocoa
 	- Desserts, mainly pastries/cookies
-	- Cider (Alcoholic or not)
+	- Cider (Alcoholic or not, I don't mind being a lil' drunk)
 - Pride
 	- Standard Pride Flag
 	- Trans Pride
@@ -41,3 +41,31 @@ Full Version, with NSFW content (elf in underwear), below:
 
 #### Image References for Ideas:
 ![[PokemonTop44.jpg]]*44 Pokemon that I enjoy a lot, with the top 6 being my favorites.*
+
+![[littleguys.jpg]]
+*22 Little Guys, since my definition of "Little Guys" is pretty vague and I thought some examples would be helpful.  Below is a list of names and sources for them all!*
+
+> [!info]- Little Guy Sources
+>From top to bottom, left to right:
+>- Pupu (Final Fantasy VIII)
+>- Pikmin (any Pikmin type works, but Purple Pikmin are my favorite)
+>- Kirby
+>- Cube (LIVE A LIVE)
+>- Don-chan (Taiko no Tatsujin)
+>- SCOUT (Murder by Numbers)
+>- Gup (Risk of Rain; any size of them works)
+>- Lumas (Mario Galaxy)
+>- Pipple (Dragalia Lost)
+>- Chibi-Robo
+>- Nago (Kirby)
+>- Lancer (Deltarune)
+>- Vivi (Final Fantasy IX)
+>- Mallow (Super Mario RPG)
+>- Riki (Xenoblade Chronicles)
+>- Grebuloffs (Final Fantasy XIV)
+>- Snoopy (Peanuts)
+>- Oatchi (Pikmin)
+>- Alpha (Final Fantasy XIV)
+>- Moogles (Final Fantasy; any version is fine except for the 7 Rebirth ones, but I love the ones from FFXIV, Mario Sports, and Kingdom Hearts)
+>- Winnie the Pooh
+>- Shiro Puppies (Houseki no Kuni)
