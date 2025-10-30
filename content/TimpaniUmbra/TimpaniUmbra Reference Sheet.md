@@ -11,7 +11,7 @@ Full Version, with NSFW content (elf in underwear), below:
  - Please don't give me BEEG BOOBA; keep it reasonable and make sure it matches the body size
  - You can swap my eye colors if you want. I don't have a specific reason, I just think that would be funny if they were different on different art pieces/models. 
  - Stretch Marks are fine; I don't really have a guide on that (yet) so just experiment and let me know, and I'll see what I like and don't like.
- - I'm fairly chill with NSFW, but just in the way that you can be kinda revealing; I'm not comfortable with outright porn of myself
+ - I'm fairly chill with NSFW, but just in the way that you can be kinda revealing; Please check with me (or let me commission something) before just making totally nude art or explicitly sexual content
 	 - Also, no fetish content; that's not what we're doing, I'm just a fat lady.
 
 #### Vibe Ideas:
