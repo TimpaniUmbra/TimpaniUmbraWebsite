@@ -7,8 +7,7 @@ Full Version, with NSFW content (elf in underwear), below:
 *Reference Sheets by [[My Wonderful Friends#Mylk|Mylk!!]]  You can also download them, and higher-quality versions of them, from [this Google Drive folder](https://drive.google.com/drive/folders/104y7Q03DZnpDLnBDsnr-fensjn4HuLF7?usp=sharing).*
 
 #### Additional Notes:
- - You may draw me fatter if you would like, but not too fat  
- - Do not draw me any thinner; the above is the minimum size
+ - You may draw me fatter if you would like; no thinner, the above is the minimum size
  - Please don't give me BEEG BOOBA; keep it reasonable and make sure it matches the body size
  - You can swap my eye colors if you want. I don't have a specific reason, I just think that would be funny if they were different on different art pieces/models. 
  - Stretch Marks are fine; I don't really have a guide on that (yet) so just experiment and let me know, and I'll see what I like and don't like.
