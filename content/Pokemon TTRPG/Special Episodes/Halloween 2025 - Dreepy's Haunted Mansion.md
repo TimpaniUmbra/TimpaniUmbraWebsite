@@ -3,9 +3,11 @@
 >
 >Also, just as a heads up, there is some content that wasn't... directly present in the original telling of this tale.  
 >
->To be transparent, I think this is the first time I've watched OCs (mine or my friends') be brutalized in the ways they were here, and it freaked me out.  Enough that Anita's story was watered down, to get me through.  I appreciate that DM Winter keeps the players' emotions in mind, but I also feel embarrassed that I caused the story as she wanted to be neutered, because I couldn't hang.  As part of a larger plan to get over my newly realized fears, I have received the general idea of what was *supposed* to happen to Anita, and have attempted to fit it cleanly into the story.
+>To be transparent, I think this is the first time I've watched OCs (mine or my friends') be brutalized and traumatized in the ways they were here, and it freaked me out.  Enough that Anita's story was watered down, to get me through the night.  I appreciate that DM Winter keeps the players' emotions in mind, but I also feel embarrassed that I caused the story as she wanted to be neutered, because I couldn't hang.  
 >
->I'm not kidding, this one gets really gruesome.
+>As part of a larger plan to get over my newly realized fears, I have received the general idea of what was *supposed* to happen to Anita, and have attempted to fit it into the story.  While I can't say it's exactly how Winter wanted it to happen, I hope I at least get close to her vision.
+>
+>I'm not kidding, this one gets really gruesome.  It got... a little hard to write at times.  But that's ok.  I'm learning.
 
 With everything sorted out, the party decided it was time to head to Professor Olive's and figure out this costume for the Smolives.  They walked by the festival again, where they saw... the Dreepy from before!  It was carrying off cotton candy from another stall, and the gang was determined to see where it was going.  They followed behind it, eventually entering a dark, creepy forest.  Selene tried to catch the Dreepy but it kept moving, farther and farther away.  Selene ran after it, to Anita's dismay.  But her and Rio followed their friend, deeper into the darkness...
 
