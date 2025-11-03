@@ -211,9 +211,21 @@ Eventually, they joined Selene and left to go check on Rio.  On the way they wat
 
 The nurse eventually came out from the back to let them visit Venonat.  Thankfully he was doing ok, recovering fast from his injuries.  Rio went to meet him first, overjoyed to see his new little friend.  He gave the Venonat some food, and then asked if the little guy would like to join his team.  Venonat was more than happy to join, getting in a Poké ball.  Selene returned to the Pokémon Center, and Anita summoned her back with them to celebrate!  Selene also introduced them to a Klink she caught, and showed that *she* was able to teach it (and Whirlipede) Rapid Spin!
 
+#### Dreepy's Haunted Mansion
+
 With everything sorted out, the party decided it was time to head to Professor Olive's and figure out this costume for the Smolives.  They walked by the festival again, where they saw... the Dreepy from before!  It was carrying off cotton candy from another stall, and the gang was determined to see where it was going.  They followed behind it, eventually entering a dark, creepy forest.  Selene tried to catch the Dreepy but it kept moving, farther and farther away.  Selene ran after it, to Anita's dismay.  But her and Rio followed their friend, deeper into the darkness...
 
-*To Be Continued...*
+*The vibe of this session, as our Halloween 2025 session, was very very very different than the usual adventures.  It was a lot scarier, and a lot more gruesome.  Due to the nature of this, I wanted to put it in it's own page as it has it's own content warnings that are unique to it, versus the rest of the story.  This is also a sort of "moment in time", so it works out in this format.  You can read this chapter at [[Halloween 2025 - Dreepy's Haunted Mansion]].  The ending is included here as a transition point back to future adventures, however.*
+
+"You idiots..."
+
+The three of them suddenly started waking up, outside of the forest that they were at.  All of them had remnants of the pain they'd felt, though they soon realized they were all fine.  Anita felt all over, but had none of the bites in her that she remembered having.  She only had a trace of that intense desire to fight, and soon it was gone altogether.  She checked, and Eevee was fine.  She made sure to give him a big hug.
+
+The three of them began to realize, it was... a dream of some kind?  They certainly all had the same one, so that was weird. 
+
+They spent a little time considering what had just happened, but Anita ultimately didn't want to think that hard on it.  She was just happy that she was with her friends (who she also surprised with a big hug.)  Her and Rio ate the cotton candy that was near them after all of this (to Selene's confusion), and the three headed off to Professor Olive's place, for real this time.
+
+*To be continued...*
 
 ---
 ## Anita's Pokémon

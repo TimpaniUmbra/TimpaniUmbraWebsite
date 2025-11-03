@@ -76,7 +76,7 @@ Page for site updates!  It goes from oldest to newest, so that the newest one ca
 - Updated [[TimpaniUmbra Reference Sheet]]
 	- New details, and added a bunch of Pokemon as inspiration
 	- This will probably be happening for a while, I wanna add more details/ideas for people to work with for Skeb-style comms
-# Latest Updates
+
 2025-10-28
 - Updated [[Jackbox]]
 	- Added Party Packs 6 and 7, Naughty Pack, Jackbox Party Starter
@@ -92,3 +92,8 @@ Page for site updates!  It goes from oldest to newest, so that the newest one ca
 	- Added a large list of little guys as potential inspiration
 - Updated [[My Art!/index|My Art!]], [[Stream Promos]], [[Streaming Assets]], [[Fan Art]]
 	- A lil bit more art
+# Latest Updates
+2025-11-03
+- Updated [[OC Showcase - Anita Cosia]]
+	- New Chapter: Dreepy's Haunted Mansion
+	- The nature of this story is more unique and intense than anything else so far as it's our Halloween Special, so I've separated the story to it's own page: [[Halloween 2025 - Dreepy's Haunted Mansion]]
