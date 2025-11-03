@@ -87,7 +87,7 @@ With no other options in that room, the three of them fled back into the hallway
 
 Anita started calling for Dreepy, desperate now to see if it could help them escape this hell.  They didn't hear any responses, and Selene started to feel heavier and heavier, clearly out of it from her personal experiences.  Except, she also started feeling... heaver than that... like she was intentionally dragging them down...
 
-Looking back, Anita was shocked to not see Anita anymore; she was dragging a mannequin with Selene's hair and clothes.  The mannequin was digging its feet into the floor, causing the extra friction.
+Looking back, Anita was shocked to not see Selene anymore; she was dragging a mannequin with Selene's hair and clothes.  The mannequin was digging its feet into the floor, causing the extra friction.
 
 The second part of the note began to make sense.  Anita didn't know when this switch would have happened, but it was clear, this wasn't Selene.  For the first time since going up the stairs, she let go.  She kept running and calling for Dreepy, with Eevee on her tail and the Demon Eevee farther behind and chasing.
 
