@@ -20,12 +20,14 @@ The concert features so many friends, all of whom have helped me find my rhythm 
 - [Twitch](https://www.twitch.tv/daisychiroptera) || [Bluesky](https://bsky.app/profile/daisychiroptera.bsky.social)
 - *🎶 Daisy in the morning🎶*
 - An incredibly kind heart and welcoming presence, wonderful to make stories with
+
 ![[daisyPlush.png]]
 ### Froob
 - She/They
 - [Bluesky](https://bsky.app/profile/froobe.bsky.social)
 - meowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeowmeow
 - Partner in Trans
+
 ![[froobPlush.png]]
 ### Haru
 * She/Her
@@ -47,6 +49,7 @@ The concert features so many friends, all of whom have helped me find my rhythm 
 - [Twitch](https://www.twitch.tv/lividjava) | [Website](https://lividjava.xyz/)
 - Mutes me in chat for fun (I usually deserve it)
 - Technical whiz, has helped me make my own streams better
+
 ![[javaPlush.png]]
 ### Meyumii
 * She/Her
@@ -74,6 +77,7 @@ The concert features so many friends, all of whom have helped me find my rhythm 
 - [Bluesky](https://bsky.app/profile/nernieb.bsky.social)
 - I protect him from the horrors in my P-Chan Carrying Bag
 - A super silly guy and wonderful hype man for all of us
+
 ![[nerniePlush.png]]
 ### Rain
 * Any/All

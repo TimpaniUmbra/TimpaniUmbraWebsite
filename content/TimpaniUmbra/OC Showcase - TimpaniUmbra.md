@@ -21,9 +21,11 @@ Musical Themes:
 - Overworld (Calm): [The Ewer Brimmeth (Final Fantasy XIV)](https://youtu.be/U5oKHoAHfVA?si=V5t7uF3xJ19mghR3)
 - Overworld (Action): [Main Theme (Pikmin) (Smash Bros Ultimate version)](https://music.youtube.com/watch?v=jY1Ldbn5qNw&si=7dLsNbeYAXV2eBgj)
 
+
 - Battle (Standard): [Lip's Theme (Panel de Pon)](https://youtu.be/z9EuRrRgGSI?si=QVFMuTrBvMxQ_Bbc)
 - Battle (Miniboss): [With Mila's Divine Protection (Smash Bros Brawl version)](https://music.youtube.com/watch?v=UhQwDwlm7ZU&si=B2M-wYdWIxQVX4RE)
 - Battle (Major Boss): [Jacinthe's Theme (Pokémon Legends Z-A)](https://youtu.be/tvSlzzXpZEQ?si=zB0NzVRbhd1sqkOE)
+
 
 - Dating Scenes (lmao): [Life at Garreg Mach Monastery (Fire Emblem Three Houses)](https://youtu.be/LrUZAE-LVCE?si=FXZiMspPFsS0HWsF)
 - Theme that you would see in like one special cutscene and then it would never play again in the game: [Vamo' alla Flamenco (Final Fantasy XIV version)](https://youtu.be/4HTYhiw3DzA?si=hC7VHA6jdWf1sa3O)
