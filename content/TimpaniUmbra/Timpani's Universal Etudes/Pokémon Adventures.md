@@ -1,20 +1,22 @@
 ![[timpaniPokemonTeam.jpg]]
 
-*Not one for the fast and competitive world of Pokémon, Timpani prefers to take it easy and help others with their own journeys.  As a member of the _____ Wind Symphony and Gym, they deal out equal parts music and challenges to lift people's spirits.*
+*Not one for the fast and competitive world of Pokémon, Timpani prefers to take it easy and help others with their own journeys.  As a member of the _____ Wind Symphony and Gym, she deal out equal parts music and challenges to lift people's spirits.*
 
 ### Overview
-Timpani ends up joining a Wind Symphony in the ___ region, seeing another opportunity to share music with others.  They only learned afterward that it was also a Pokémon gym, and that they'd have to participate...
+Timpani ends up joining a Wind Symphony in the ___ region, seeing another opportunity to share music with others.  She only learned afterward that it was also a Pokémon gym, and that she'd have to participate...
 
-Thankfully they picked up the rules of the Pokémon world fairly quickly.  With their new friends helping, they managed to get a team of grass types that were fighting fit and just their vibe.  Thus, they began to take on challengers who sought to reach the gym leader and get their badges.
+Thankfully they picked up the rules of the Pokémon world fairly quickly.  With their new friends helping, they managed to get a team of grass types that were fighting fit and just their vibe.  Thus, she began to take on challengers who sought to reach the gym leader and get their badges.
 
-With so many members of the Wind Symphony, they were often rotated out as other members got their battles in.  Thus, Timpani was often left to explore the world of Pokémon and make new discoveries!  Along the way they found the other three members of their team as well!
+With so many members of the Wind Symphony, they were often rotated out as other members got their battles in.  Thus, Timpani was often left to explore the world of Pokémon and make new discoveries!  Along the way she found the other three members of their team as well!
 
-This little team isn't planning on going big or anything; Timpani never really had the itch to try out the Pokémon League as a competitor, or anything like that.  But they find many adventures and met many new friends (trainers and Pokémon), so it's just as worthwhile.
+This little team isn't planning on going big or anything; Timpani never really had the itch to try out the Pokémon League as a competitor, or anything like that.  But they find many adventures and meet many new friends (trainers and Pokémon), so it's just as worthwhile.
+
+Timpani's skilled integration into the orchestra made her a Section Leader for the percussion, which granted her a Keystone to be capable of Mega Evolution.  This allows her to utilize the Mega forms of Chandelure and Whimsicott. *(If the Pokémon Company won't do it then I will, dammit!  I'll make a concept for this soon.)* She affixed it to a tambourine to make the Mega Evolution sequence more fun, and to better express the passion and heart behind the whole process.
 
 ### The Team
 *Listed in the order they joined Timpani*
 ##### Whimsicott
-Timpani's first Pokémon, after they were instructed on how to begin obtaining them.  Their meeting was a lot calmer than most, happening after Timpani had experience multiple failures in attempting to catch anything else.  
+Timpani's first Pokémon, after she was instructed on how to begin obtaining them.  Their meeting was a lot calmer than most, happening after Timpani had experience multiple failures in attempting to catch anything else.  
 
 The Whimsicott, originally a Cottonee, found Timpani after accidentally flying into her beret, captured by the wind.  Comforted by the beret and tired from the journey, she fell asleep, and that allowed Timpani to comfort her and gain her trust naturally.  The two quickly became friends, and began their many adventures together in the gym and the greater Pokémon world.
 
@@ -23,7 +25,7 @@ Whimsicott is to Timpani what Pikachu is to Ash: a constant companion by Timpani
 ##### Sprigatito
 This was the first Pokémon Timpani actually captured through battle.  A gang of Sprigatito suddenly rolled into town and began causing mischief, encouraging the gym to investigate.  After some time they were able to learn that these were simply a group of stray Sprigatito, simply migrating into the town for the yummy food in the various restaurants.  The gym was able to work something out, taking care of the little guys in the gym (since it was already grass-themed anyway).
 
-At some point, one of them began getting rowdy and trying to fight all the others.  He started being hard to manage, concerning the gym as they attempted to calm him.  After he tried to fight Whimsicott, Timpani offered to fight him to see if he just needed to battle.  During the fight, Sprigatito and Timpani seemed to understand each other better, and out of nowhere Timpani threw a Pokéball at him.  The capture was successful, and Sprigatito joined them!
+At some point, one of them began getting rowdy and trying to fight all the others.  He started being hard to manage, concerning the gym as they attempted to calm him.  After he tried to swipe at Whimsicott, Timpani offered to fight him in a real battle to see if he just needed to let off some steam.  During the fight, Sprigatito and Timpani seemed to understand each other better, and out of nowhere Timpani threw a Pokéball at him.  The capture was successful, and Sprigatito joined her!
 
 While somewhat calmer now, Sprigatito still enjoys battling and is constantly trying to play with random things he sees like a normal cat.  He refuses to evolve but manages to be a strong fighter in his own right, taking a worthy spot on Timpani's gym team.
 

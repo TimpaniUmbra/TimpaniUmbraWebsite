@@ -5,15 +5,25 @@ Full Version, with NSFW content (elf in underwear), below:
 >![[timpani nsfw full ref (full jpg).jpg]]
 
 *Reference Sheets by [[My Wonderful Friends#Mylk|Mylk!!]]  You can also download them, and higher-quality versions of them, from [this Google Drive folder](https://drive.google.com/drive/folders/104y7Q03DZnpDLnBDsnr-fensjn4HuLF7?usp=sharing).*
-
 #### Additional Notes:
  - You may draw me fatter if you would like; no thinner, the above is the minimum size
- - Please don't give me BEEG BOOBA; keep it reasonable and make sure it matches the body size
+ - Please don't give me BEEG BOOBA; if you do make me fatter/bigger, I'd appreciate the same boob/body size ratio as above, if possible.
  - You can swap my eye colors if you want. I don't have a specific reason, I just think that would be funny if they were different on different art pieces/models. 
  - Stretch Marks are fine; I don't really have a guide on that (yet) so just experiment and let me know, and I'll see what I like and don't like.
- - I'm fairly chill with NSFW, but just in the way that you can be kinda revealing; Please check with me (or let me commission something) before just making totally nude art or explicitly sexual content
-	 - Also, no fetish content; that's not what we're doing, I'm just a fat lady.
-
+ - If you're considering something that's more NSFW, or if I commissioned something NSFW, please check the below section:
+ 
+> [!info]- NSFW Notes
+>- Pinup-style art is fine, fat ladies are cute and hot, hell yeah
+>	- I don't think of myself (irl or in my streaming persona) as having a sexy demeanor, more comfy-cute than anything, if that gives any metric to how a pinup of me may look
+>- You can be revealing to a decent degree without my explicit blessing
+>	- "Lingerie-only" is fine, anything less requires talking to me
+>	- I'm cool with showing off the big tummy or butt or whatever within that restriction
+>- For totally nude art, or for art that's more actively sexual in nature, please check with me first (or let me commission that)
+>- No fetish stuff: I'm not a feeder/feedee or anything like that
+>	- I'm happy to be eating food in art, but nothing aggressive or sloppy or anything like that, and nothing that would imply the above
+>- I'm confident in being a fat woman, and happy with my body.  I've seen a genre of art where people are worried about being fat/gaining weight, and that's not me.  Don't do that to me.  (That may be an extension of the above, but I figured it was worth clarifying.)
+>  
+>  Just to be clear, I'm not speaking against any kind of art or tastes here; I'm just noting how I'd be comfy being represented.  I hope I can be an example for cute (maybe even hot) women with big tummies o7
 #### Vibe Ideas:
 - Colors: Purple, Black, Blue, Maroon
 - Void/Umbral
@@ -37,7 +47,6 @@ Full Version, with NSFW content (elf in underwear), below:
 	- Standard Pride Flag
 	- Trans Pride
 	- Pansexual Pride
-
 #### Image References for Ideas:
 ![[PokemonTop44.jpg]]*44 Pokemon that I enjoy a lot, with the top 6 being my favorites.*
 
@@ -68,3 +77,14 @@ Full Version, with NSFW content (elf in underwear), below:
 >- Moogles (Final Fantasy; any version is fine except for the 7 Rebirth ones, but I love the ones from FFXIV, Mario Sports, and Kingdom Hearts)
 >- Winnie the Pooh
 >- Shiro Puppies (Houseki no Kuni)
+#### Other Outfits
+If you'd like to experiment with other outfits, I have these that could be fun!  I don't have any organized references for these so no worries if you need to experiment with some things on these.  (For commissions, unless I specify an outfit, please use the one in the main reference.)
+
+![[timpaniWitch.jpg|300]]
+*Witch Costume*
+
+![[timpaniMagolorPreview.jpg|300]]
+*Magolor Costume*
+
+![[timpaniPokemonTeam.jpg|400]]
+*Pokémon Trainer Outfit and Pokémon team (to clarify, the tambourine has a Keystone for Mega Evolution in it; more details for this [[Pokémon Adventures|here.]]*

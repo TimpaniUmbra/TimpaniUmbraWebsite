@@ -33,11 +33,15 @@
 ## Backstory
 
 #### Early Life
-Born in Paldea, Anita was born into a fairly average family as far as status and wealth goes.  Her needs were generally met growing up and her parents were able to get an average salary.  Her mother's job as an Ace Trainer, however, kept her traveling a lot.  Often, it was just Anita's father and her for longer stretches of time, as he worked at a local café.  
+Born in Los Platos, Paldea, Anita was born into a fairly average family as far as status and wealth goes.  Her needs were generally met growing up and her parents were able to get an average salary.  Her mother's job as an Ace Trainer and competitive battler, however, kept her traveling a lot.  Often, it was just Anita's father and her for longer stretches of time, as he worked at a local café.  
 
 Anita's time was often spent at the café, when not with friends or at school.  It was here, and at home, that her dad's appreciation for food rubbed off on the young Anita.  She was able to see how much it meant to him and his customers, along with their Pokémon, and it began to mean much to her as well.
 
-Thus, as she grew up, Anita began to help out at the café when she had the time.  Her dad was more than happy to teach her everything he knew about cooking, and she learned it very well.  Customers began to recognize her work just as fondly as his, and their Pokémon felt the same.  It certainly helped that Eevee, one of the family's Pokémon, was always willing to try samples herself.  Cooking became a major pastime for Anita, for all of the joy it brought her and others.
+Thus, as she grew up, Anita began to help out at the café when she had the time.  Her dad was more than happy to teach her everything he knew about cooking, and she learned it very well.  Customers began to recognize her work just as fondly as his, and their Pokémon felt the same.  Cooking became a major pastime for Anita, for all of the joy it brought her and others.
+
+It certainly helped that Eevee, one of the family's Pokémon, was always willing to try samples herself.  Eevee was originally one of Anita's father's Pokémon, and a regular helper around the café alongside his Fidough.  Those two, and her mom's Liepard, were the "household" Pokémon, that were out and about around the house more instead of in their Poke balls.  
+
+The three Pokémon showed Anita how these creatures could help out in all facets of life, in battle and beyond.  She loved just being friends with them more than anything.  Of course she cheered her mom on, but she didn't totally understand why the battles were necessary for "growing each other's bonds" or whatever...
 
 #### The Uva Academy
 When she was of age, however, her competitive mother had her own ideas.  She wanted her daughter to become a top-notch battler just like her, to see the joy of battles like she did.  Anita showed a clear distaste for wanting to battle so hard, and her dad saw this, but her mom wouldn't have it and eventually applied her to the Uva Academy, to discover the passion she was so desperate for her daughter to have.
@@ -46,12 +50,129 @@ Thus, Anita ended up at the Uva Academy, alongside Eevee who wouldn't leave her 
 
 Thankfully she was able to make some great friends while at the academy, even if she wasn't the best on the battlefield.  She ended up spending a lot of time with Selene and Rio, two other students who were far better at battling than her.  Often times, they'd help her with battle practice and she'd return the kindness with cooking and hospitality.  The three of them ended up getting very close, and the other two ended up showing her what real passion and love for their crafts can look like.
 
-#### The Life of a Chef
-This realization made her more confident in herself and more willing to take charge of her life to follow her real passion: cooking!  She dropped out of the Academy on her own accord, and left to go pursue a culinary career at a few different restaurants.  All of them taught her new things about cooking, and she came to love her craft more and more.  She even met more Pokémon along the way, who became additional partners on her team.  While her mother was disappointed and hasn't really let it go, her father was on her side and has continued to support his daughter's dreams.
+#### Rio, the Big Heart
+As two Paldean residents, Rio and Anita were at Uva together from the start, though it took a little bit for the two to actually meet.  Anita was aware of him and had talked to him a little bit, but he seemed super reserved and nervous around others and it made interactions kind of awkward.
 
-At one point, Anita felt as though she began to stagnate in her culinary expertise, suddenly wanting to learn even more than ever before.  Almost out of nowhere, she immediately quit her job and made plans to head on the road.  She was ready to learn from the best chefs in the world, and hopefully make a few new techniques out of the many mysteries, flora, and fauna of the world.  She was ready to finally show her mother that passion could take many forms.  Though, does she really need to worry what her mother thinks anymore, now that she's on her own?
+One day, when walking around campus after school, Anita noticed Rio off to the side, kneeling down and holding onto... something.  Getting a different angle showed he was actually holding a little Zubat, who wasn't looking too hot.  In fact, it looked really hurt!  Anita was nervous knowing her previous attempts to interact with Rio, but seeing him look so broken up over the Zubat made her get over those worries.  In fact, she made a little plan this time.
 
-Only she can find the answer to that question, along with her culinary techniques.  Though after a chance encounter with her old academy friends, she doesn't have to be alone in that journey.
+Anita grabbed her lunch from her bag, getting out a smaller tupperware, and carefully approached student and Pokémon.  She quietly made her presence known and wanted to see if the little Zubat would like some food, showing the crepes in her little container.  Rio seemed unsure for a second, but then gave it a try, taking one from Anita and giving it to the Zubat.  She seemed really excited to take a taste and slowly ate it happily, relieving Rio.  
+
+Anita took this opportunity to sit with the two, asking a little bit about the Zubat. Rio explained that he had just found the little guy with a broken wing.  He was trying to do what he could to help it but wasn't sure it was enough, worrying him greatly.  Anita offered to help if it was ok, thinking nearby Pokémon Center would be a good start.  Rio seemed a little more receptive to her after the Zubat's snack, and the three headed off.
+
+The Pokémon Center accepted the little Zubat and took it to the back to check on.  The two decided to wait together, though Rio seemed unable to actually rest.  He was so nervous, pacing around and not really thinking about anything else.  Unsure of what else to try, Anita sat down, opened her tupperware again, and offered Rio the second crepe to relax.  That at least got him to sit with her, and with Anita taking the last treat in the container, the two ate for a while and actually got to know each other.
+
+Anita realized how silly and kind Rio actually was, now that they were a little more comfortable with each other after the day they'd had.  He was suddenly joking around a lot more, and the two had a great little rapport going as they talked about their time so far at the academy and their love of Pokémon.  Anita realized how much she wanted a friend like him around, now that she finally saw his true self.
+
+Eventually the nurse let them check on the Zubat, who was recovering well.  It seemed she wouldn't be able to fly for a bit, but she was in better spirits than before.  Rio was practically in tears with how happy he was that Zubat was ok, starting to call it Nos in the process.  He mentioned that was the name he'd started to give her, wanting to see if she'd like to join him for more adventures.  Nos seemed happy to be with him, though Rio didn't seem to have a Poké ball on him... thankfully Anita had a couple spares, and he was able to officially catch Nos.
+
+Since Nos wasn't fully recovered, Anita offered her dad's café for a little bit to take care of her.  Her dad may have some ideas on how to make sure it was comfy and recovering well.  Rio was happy to join and the two went to the café.  After initially getting some advice from Anita's dad, the two would meet here regularly.  First it was to take care of Nos and give it nice snacks, but after the recovery they just kept meeting there to do homework or just hang out together.  They became fast friends, and Anita was overjoyed to have someone like Rio to joke around with and grow their love of Pokémon together.
+
+#### Selene, the Battle Fanatic
+One day, when Anita and Rio were doing homework at the café together, a mysterious new girl came in, ordered some food, sat at an empty table, and pulled out her own schoolwork.  The pair didn't really give too much thought for a bit; after all, new customers came and went all the time.  However, Anita suddenly noticed the girl had materials with Uva's logo... she was a student too?
+
+Anita and Rio agreed that they had never seen this girl, and realized she must be new!  They figured together that they may as well go say hi, what's the harm?  They walked over to her and introduced themselves, mentioning their same school.  The girl seemed a little nervous, but did end up introducing herself as Selene.  As they thought, she was new, and still kinda finding her way around the academy and town.  
+
+Rio asked if they could sit with her and study with her, and she quietly accepted their company.  They sat together for a while, doing their work and occasionally talking and getting to know each other better.  For a little bit Selene seemed really nervous about saying too much, and Anita was worried they were being too overbearing.
+
+Thankfully her dad came out with snacks, before Anita could inevitably do something boisterous and worse.  He introduced himself to Selene and talked with the trio for a while, with a couple of vague mentions about a big tournament mom was supposed to be in that weekend (just told to Anita as the "big weekend") that she was away for.  When he went back to the kitchen, Selene asked what that was about, and Anita explained her mom's career as a competitive battler.
+
+Selene immediately lit up on hearing that, asking a ton of questions about her mom and her mom's Pokémon, suddenly being able to explain battle tactics before Anita had a chance to actually finish explaining what they were.  Selene was immediately enamored hearing about this, and eventually just going off on her own about her love of competitive battling.  She excitedly proclaimed her own goals of succeeding in the Pokémon Leagues and becoming the best battler in the world, coming to Uva to get a good start alongside all of her other battle knowledge.  
+
+Anita and Rio were both shocked at this transformation in Selene, but they both agreed: she was their friend now.
+
+After this, the three kept meeting up both on campus and at their dad's shop.  They quickly became close, and were inseparable for most of the time.  Oftentimes Selene and Rio would work together to help Anita with battle knowledge, including having battles with Eevee.  And in return, she'd take over her dad's kitchen for a bit to make some treats for her friends.
+
+Anita felt so fortunate to find friends as cool as these, and they made her odd time at the academy more than worth it.  To this day, one of Anita's favorite keepsakes from this time is a photo that the three of them took in the Academy courtyards, that she keeps in a transparent phone case with other photos.  Even as those other photos were swapped with new ones, this picture remained and helped her remember the good times with her friends when she missed them.
+
+#### Aurel, the Mystery Kid
+There was another friend that Anita made as well, though they were a little dodgier than her little trio.  One day on campus, Anita was alone and sitting with Eevee, grooming him, when someone else decided to join after seeing how cute Eevee looked.  He introduced himself as Aurel, and introduced his Espurr as well.  The two Pokémon immediately got along as if they'd been great friends for a long time, and that instantly seemed to make the two trainers friends as well.
+
+Ever since that initial meeting, Anita and Aurel made sure to meet up regularly, to talk about all the cute things their Pokémon were doing.  It was nice that this new friend saw Pokémon beyond the battles, as they rarely talked about that stuff.  And they were incredibly supportive of Anita's real passions, hoping that she'd be able to find her way to accomplish those goals more. 
+
+He was a kind of a strange one, as he would often be incredibly blunt with his words in discussions.  He'd sometimes rather just sit and vibe instead of talking as well, though he always made sure to be present when they agreed to meet up.  Anita was aware that they had been trying, with less success, to be friends with Rio and Selene as well.  But Anita certainly got along with him, seeing past anything that was "weird" and enjoying how much the two seemed to radiate off of each other's positivity.
+
+There was a specific time, in a home economics class, where he cut himself incredibly badly and needed to be taken to the academy's nurse.  The normal teacher was out, but Anita was up quickly to take them to the nurse instead.  She made sure to stay with him to make sure he was okay, even after they were already being treated by the nurse.  At one point, possibly under the influence of his pain, Aurel confessed that he was... envious of Anita.  And that he wished he could be more like her.  He didn't clarify any further, and never brought that up again, but Anita never forgot that.  Mostly for wondering what they could be seeing in her.
+
+#### The Paldea Tour
+At some point Anita ended up in the exchange program at Blueberry Academy, presumably from her mom's influence.  Thankfully Selene had also joined the program, but it was still incredibly stressful.  She was not prepared for the level of talent here, and was immediately out of her element among the high-tier trainers here.  It was a mess, and Selene's kindness was the only thing keeping her going.
+
+Seeing Selene's passion continue to burn here was inspiring for Anita, watching her commit her all to this thing that she loved so much.  It made Anita realize she should also be doing that, making her moves to make her passions come true.  So, she had a plan...
+
+She dropped out of the Academy on her own accord, and left to go pursue a culinary career at a few different restaurants.  She ultimately wanted to show that her way was just as valid and exciting as any Ace Trainer's life could be.
+
+She returned home for a little bit, after telling her parents of her choice.  Her mom was civil enough about it, though she'd often make snide remarks about giving up and the like.  Thankfully her dad, who knew his daughter, was incredibly supportive and happy to see her.  He let her work in his café officially for a little bit as she got all of the ropes of cooking as a full-time career.  In not much time at all, Anita was ready to get out there and make her mark.
+
+#### Big Dreams (and Small Results) in Medali
+She initially moved to Medali, setting her hopes very high (possibly too high) with a goal of working at the famous Treasure Eatery.  She figured a place with its prestige would provide a lot of opportunities for her to grow as a chef.  It wouldn't hurt to brag about how she immediately became a star in the culinary world as well, showing she had already made it to a peak in life...
+
+However, when she moved in, she saw that they weren't actually looking for new hires at the moment.  She decided on a bold plan, taking a much smaller job while she waited for the opportunity to strike.  She ended up becoming an assistant at a little food cart, a Chic Kebab.  She immediately thrived, making the little cart more famous than ever and bringing in a lot more customers than usual.
+
+This also stole attention from the nearby food stalls, and created a bit of a rivalry with one of them.  Anita specifically ended up getting into a rivalry with one of the co-owners, a woman named Skylar, who would get irritated at Anita's cheery attitude.  Well, "rivalry," really; Anita was actually having more fun and saw Skylar as more of a friend than an enemy.  She was impressed with her work a lot, and it encouraged her to improve herself even more at her own little food cart.  She admired a lot about Skylar, even if the feeling wasn't super mutual at this time.
+
+Suddenly, however, Skylar left.  It wasn't confirmed what happened, but it was assumed she just found another opportunity elsewhere.  Technically the food cart rivalry was still happening, but Anita just... didn't have the heart for it without Penny as her opposition anymore.
+
+Coincidentally, the Treasure Eatery suddenly got an opening for a chef, and Anita jumped at this chance.  Her initial application was successful, but she was required to participate in a more thorough test, cooking to impress some of the higher-end clients.  It was a very rigorous test, involved a ton of recipes across a variety of food genres, but Anita's know-how helped her make everything.  And in the end, she impressed some of the clients, including the gym leader Larry...
+
+...but ultimately not enough of them.  She didn't pass.  And quickly after, someone else got the position.  She'd failed her goal, unable to make it big here like she hoped.
+
+She stuck around for a little longer at Chic Kebab, but with the failed try at Treasure Eatery and with Skylar gone, she suddenly didn't feel happy sticking around at this place marked with her failure.  She moved on, to try again elsewhere.
+
+*(Additional Note: Anita caught Combee during this time, while on a camping trip in the South Province)*
+
+#### The Comfy Community of Monteneyera
+She then ended up in Monteneyera, a much smaller town than before.  There wasn't a ton of action here, with people mostly visiting for the gyms or the nearby snowboarding slopes.  And that was Anita's gambit: what if she could help make it a thriving food community?
+
+She nabbed a job at Sushi High Roller pretty easily, and quickly made a name for herself in the town.  Since it was smaller, her name got around more as she learned and grew quickly in her skills.  This also meant that she quickly got to know everyone really well in return, being able to personalize dishes more easily to suit their tastes.  She really got to know these people and felt like part of the community.  In a way, she felt more like her dad in his little café, getting to know all their lives and goings on, bonding over food and drink.  It was really nice...
+
+*(Additional Note: Anita caught Lillipup during this time, one night when closing up the restaurant.)*
+
+#### Anita and her Parents
+...though there was a little thing in the back of her head that kept pushing her away from it.  Or rather, a little thing on her phone.
+
+Throughout all of her travels, Anita made sure to keep in touch with her parents.  Generally it was good to catch up with them, especially her dad.  He'd always mention how proud he was of her for finding her way, and giving her new cooking tips that he claimed would "save her life in the kitchen" some day.  It was really nice and comfy to hear his stories of home.  
+
+Her mother, however, was a lot more stressful.  She'd constantly send Anita flyers for battle scrimmages and tutors wherever she was living at the time.  Every move was hit with messages that she should have a place and a goal figured out, none of this aimless wandering when a perfectly good life was there for her to grab at the Academy.  Even in Monteneyera, where Anita felt like she was figuring things out, her mom would still drill it into her head that she could be doing more.
+
+And eventually Anita did move on, broadly saying there were "new opportunities" in the world and the like.  She also, in her mind, kept saying how her Pokémon (especially Combee) would probably like somewhere warmer to live.  That's all it was for.
+
+#### Hitting the Big Time in Levincia
+She decided to dream big again, looking to Levincia with all the skills she'd learned to really hit the big leagues of cooking.  And this time, it actually worked!  She ended up getting a job at Gastronomie en Famille, a very high-class restaurant in the region.  She was immediately able to learn so much, and make a name for herself.  It felt great, she'd finally started achieving some huge things!!  
+
+As a bonus, she reconnected with Skylar, who turned out to have moved here all that time ago looking for a big-city opportunity.  Since they weren't actually "rivals" anymore, the two quickly became inseparable friends.  They'd always enjoy going out and doing stuff together, and constantly trade cooking techniques (along with just cooking for each other).  It was wonderful to have a friend like this again, thinking back to her Academy friends and realizing she had someone as close as them again.  She was amazing.
+
+*(Additional Note: Anita caught Ducklett during this time, during an incident at a street market while out with Penny.)*
+
+Another boon was having the money to go on trips by herself, as she visited other regions periodically.  In total, she'd been to various places within Kalos, Unova, and Hoenn, where she learned a lot about different foods and cultures.  It was amazing learning just how much MORE there was to learn in this world.  So many different people, so many different foods to bring everyone together in so many ways, and so many tastes to get to know people by...
+
+*(Additional Note: I'm considering adding an additional important person who ends up being like a pen pal or something, that she meets on one of these trips.  Winter/Soapy/Daisy if y'all are reading this I'm down to hear advice)*
+
+...but this also made her realize... was she limited just staying where she was?  Was this... not the goal she wanted?
+#### Anita and Selene, Friends from Afar
+To back up a bit, Anita and Selene had been keeping up fairly regularly after the former dropped out of the Academy, as they kept each other updated on their lives and happenings.  Selene was still at the academy, as expected for someone that, as Anita saw, was so passionate about her battling.  And it sounded like there was a lot of exciting stuff going on!  Anita was there in calls and messages to cheer on her friend for catching a Venipede, that she was insanely proud of.  And she rooted for her friend after getting into a relationship with a nice girl named Violet, excited to hear all of their little stories and dates and the like.  She was there when, a couple years later, the couple broke up.  At least it sounded amicable, but Anita was very determined to make sure Selene was alright after it.  
+
+Anita did notice that Selene was very quick to avoid talking about school; when Anita asked about it, she'd just respond "it's going fine" and moving to another topic.  Though it was fair enough to Anita; school couldn't be THAT exciting, after all.  She seemed to be enjoying her time outside of the actual Academy and in Castelia instead, so she was clearly finding other ways to live out her battle dreams.
+
+In return, Anita would tell Selene of her many adventures.  Anita kept Selene up to date with her many moves, though she would obfuscate the exact reasons each time.  She felt like it'd be weird to hear all of Selene's passions coming to fruition, only for her to speak of her... failures... so she'd just blanket the moves as "new opportunities" and keep her optimism about them.  Anita also did talk about Skylar, a lot, in both Medali and Levincia, and all of the fun stuff the two got up to.  Anita's trips were discussed in detail as well.  She was happy to be able to show Selene that she was also growing in the thing that she loved, alongside her friend.
+
+#### A Big Wide World of Food
+Selene was also the first to hear about Anita's new, lingering feeling she'd gotten from her trips.  She realized how much there actually was to learn in the world, with so many different people and Pokémon with all of their own tastes.  So many new foods, ingredients, and recipes just begging to be explored.  So much more beyond the kitchen she was in for a lot of her time, and the city that felt big enough to house someone forever if they wanted.  Anita also considered how nice it was to just meet people and cook for them, as she learned about them by way of food.  She still thought about Monteneyera fondly for that.  
+
+Selene didn't hear that, additionally, her mom was *still* giving her grief, this time about how she still wasn't doing anything big or important while she was stuck in that little kitchen.  How she could be doing more... through battle.
+
+A lot of new thoughts moved through her head, and Selene became the first to hear about them as someone she really trusted to talk about her dreams with.  Eventually, a plan was formed in Anita's mind, and soon that plan was ready: she'd be going on-the-road with her cooking!  No restaurants to get stuck in, no stagnant life cooking the same things over and over.  She'd learn so many new things, help and meet so many new people, and become the most versatile chef of all time!  Her mom would HAVE to see how important cooking was then, if someone could get THAT big.  And she'd be able to live her own dreams to the fullest.  There were still some details, but she'd figure them out along the way.  As a first step, she said goodbye to her time in Levincia, and promised Skylar she'd be back often.  She decided to go home for a moment to get ready.
+
+#### The Journey Begins
+As usual, her dad was happy to see her, and proud (if not a little surprised) at her daughter's sudden fire for an adventure of this magnitude.  He saw how his daughter had made a name for herself already, and was ready to see where she'd end up next.  He did recommend Galar first; he remembered hearing of some interesting and potentially powerful dishes to try making there, and figured it was worth a look for Anita.
+
+Her mom, however, was livid.  She tried to stay civil, but a couple nights before Anita headed out, the two had a massive argument over everything.  Mom didn't hold back, calling her daughter aimless and just floating through life with no drive and purpose.  Contributing nothing with her wandering and lack of committing to anything.  Battling would have given her something concrete, and she threw away a perfectly good opportunity to love it like her!  What was she doing?
+
+Anita snapped back, for the first time since all this began.  She just couldn't understand why her mom couldn't see that she wasn't happy being an ace battler like her, why she just wanted to love and be friends with Pokémon in this way.  She barely understood how battling made friends in the first place, when there were other ways to get to know people without it.  She was so much happier in her new path, and her mother's disapproval was the only thing keeping her from being completely happy.  She just wanted her to lay off, she didn't have to understand her daughter's life but she could at least support her.
+
+While things simmered down the next couple of days, there was still a tension in the air between the two.  
+
+When it was time to head off on her journey, she felt a lot of weight lifted off her shoulders as her dad saw her off.  She was ready to find her way.  She didn't know exactly what she'd be getting into, but she was ready to explore a wide world of cooking, and show everyone, especially her mom, that her path was worth it.  Even if she was still... figuring that exact path out a little bit.
+
+Only time would tell what all she'd learn and how she'd see the world on her journey.  But as a chance encounter with old friends would quickly show, even she couldn't have imagined what she'd learn about cooking, Pokémon, and even her own capabilities.
 
 ---
 ## Campaign Events

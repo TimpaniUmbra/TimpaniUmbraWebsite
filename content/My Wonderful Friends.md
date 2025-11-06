@@ -15,6 +15,12 @@ The concert features so many friends, all of whom have helped me find my rhythm 
 * Helped me become louder and more confident in myself
 
 ![[caribouPlush.png]]
+### Daisy
+- She/Her
+- [Twitch](https://www.twitch.tv/daisychiroptera) || [Bluesky](https://bsky.app/profile/daisychiroptera.bsky.social)
+- *🎶 Daisy in the morning🎶*
+- An incredibly kind heart and welcoming presence, wonderful to make stories with
+![[daisyPlush.png]]
 ### Froob
 - She/They
 - [Bluesky](https://bsky.app/profile/froobe.bsky.social)
@@ -63,11 +69,17 @@ The concert features so many friends, all of whom have helped me find my rhythm 
 * Helped me feel more confident in how I show myself to the world
 
 ![[mylkPlush.png]]
+### Nernie
+- He/Him
+- [Bluesky](https://bsky.app/profile/nernieb.bsky.social)
+- I protect him from the horrors in my P-Chan Carrying Bag
+- A super silly guy and wonderful hype man for all of us
+![[nerniePlush.png]]
 ### Rain
 * Any/All
 * [Bluesky](https://bsky.app/profile/reyyn.bsky.social) || [Twitch](https://www.twitch.tv/redhawkrain)
-* I think we have streamer drama, but we can't decide what that means
-* A real ride-or-die, in raid and beyond
+* We have resolved our Streamer Drama (I still don't know what the drama was)
+* A very comforting presence in my life (even when we're losing a lot in games)
 
 ![[rainPlush.png]]
 ### Ren
@@ -87,15 +99,21 @@ The concert features so many friends, all of whom have helped me find my rhythm 
 ### Soapy 
 * She/Her
 * [Bluesky](https://bsky.app/profile/soapy5296.bsky.social) || [Twitch](https://www.twitch.tv/soapy5296)
-* How the hell do you use this umbrella so well
-* Contagious positivity and joy for life, makes me feel more confident all the time
+* My rival (I think, we can't decide entirely what this means)
+* Contagious positivity and joy for life and creativity, makes me feel more confident all the time
 
 ![[soapyPlushTemp.png]]
 *Using a temp model for forbidden reasons*
+### Winter
+- Any/All
+-  [Twitch](https://www.twitch.tv/winterblaze777) || [Website](https://linktr.ee/winterblaze)
+- Putting my beloved characters into situations
+- A brilliant writer and storyteller who has challenged me to think bigger on my own writing and character creation
+![[winterPlush.png]]
 ### Yuna
 * She/They
 * [Bluesky](https://bsky.app/profile/yunanoire.bsky.social) || [Twitch](https://www.twitch.tv/yunanoire) || [Blog](https://yunanoire.com/)
-* Tenna Fan Club co-founder
+* Ursula but a real person (could still be a witch irl, we don't know yet)
 * Well-read and sharp with words, I LOVE her takes on games
 
 ![[yunaPlush.png]]

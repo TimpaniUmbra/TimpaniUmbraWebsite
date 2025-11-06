@@ -92,8 +92,27 @@ Page for site updates!  It goes from oldest to newest, so that the newest one ca
 	- Added a large list of little guys as potential inspiration
 - Updated [[My Art!/index|My Art!]], [[Stream Promos]], [[Streaming Assets]], [[Fan Art]]
 	- A lil bit more art
-# Latest Updates
+
 2025-11-03
 - Updated [[OC Showcase - Anita Cosia]]
 	- New Chapter: Dreepy's Haunted Mansion
 	- The nature of this story is more unique and intense than anything else so far as it's our Halloween Special, so I've separated the story to it's own page: [[Halloween 2025 - Dreepy's Haunted Mansion]]
+# Latest Updates
+xxxx-xx-xx
+- Updated [[Pokemon TTRPG/index|Pokemon TTRPG]]
+	- Better description and references to the friends involved
+- Updated [[OC Showcase - Anita Cosia]]
+	- Lots of additional backstory.  There's much more about Anita's academy days, her travels between that and the campaign, and her overall goals and struggles in life.
+		- Basically it was good to put her in a "situation" because my ideas suddenly quadrupled from it
+		- Also with big thanks to Soapy, Daisy, and Winter because a lot of it was a team effort with the interactions between all of our characters in the past
+- Updated [[Session Doodles]]
+	- New Art!
+- Updated [[OC Showcase - TimpaniUmbra]]
+	- Added musical themes 'cause I forgot to before and every OC I have needs them
+	- Updated pronouns, here and on other pages where I previously forgor about doing that
+		- This isn't some even newer update, I just forgot to apply They/She everywhere
+- Updated [[Pokémon Adventures]]
+	- Added Mega Evolution to the lore and imagery
+- Updated [[TimpaniUmbra Reference Sheet]]
+	- Added additional outfits to consider, for non-commissioned references
+	- Made an NSFW Notes block, so that I can mention all the saucier stuff in a little block for those who may need the info (and have it hidden for those who weren't gonna do anything like that.)
