@@ -98,7 +98,7 @@ Page for site updates!  It goes from oldest to newest, so that the newest one ca
 	- New Chapter: Dreepy's Haunted Mansion
 	- The nature of this story is more unique and intense than anything else so far as it's our Halloween Special, so I've separated the story to it's own page: [[Halloween 2025 - Dreepy's Haunted Mansion]]
 # Latest Updates
-xxxx-xx-xx
+2025-11-06
 - Updated [[Pokemon TTRPG/index|Pokemon TTRPG]]
 	- Better description and references to the friends involved
 - Updated [[OC Showcase - Anita Cosia]]
