@@ -97,7 +97,7 @@ Page for site updates!  It goes from oldest to newest, so that the newest one ca
 - Updated [[OC Showcase - Anita Cosia]]
 	- New Chapter: Dreepy's Haunted Mansion
 	- The nature of this story is more unique and intense than anything else so far as it's our Halloween Special, so I've separated the story to it's own page: [[Halloween 2025 - Dreepy's Haunted Mansion]]
-# Latest Updates
+
 2025-11-06
 - Updated [[Pokemon TTRPG/index|Pokemon TTRPG]]
 	- Better description and references to the friends involved
@@ -116,3 +116,9 @@ Page for site updates!  It goes from oldest to newest, so that the newest one ca
 - Updated [[TimpaniUmbra Reference Sheet]]
 	- Added additional outfits to consider, for non-commissioned references
 	- Made an NSFW Notes block, so that I can mention all the saucier stuff in a little block for those who may need the info (and have it hidden for those who weren't gonna do anything like that.)
+# Latest Updates
+2025-11-15
+- Updated [[OC Showcase - Anita Cosia]] and [[Session Doodles]]
+	- New Chapters and Art!
+- As a heads up, I'm working on moving everything to a new site!  Something that I can actually customize from the ground up, as I learn HTML-based site creation.  As a result, I don't intend to make a lot of updates here anymore.  The only parts that will be updated will be the TTRPG pages and my reference sheet as needed, until I can fully build the site and migrate all of this writing and art to it.
+	- [You can check it out early if you'd like!](https://timpaniumbra.neocities.org/)  Just know it's still a work in progress, and there will be some empty links/pages for a bit longer.

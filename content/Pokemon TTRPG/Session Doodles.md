@@ -7,3 +7,5 @@ I dunno if I'll add the context entirely on these, but I'm happy to share if you
 ![[Day6Clips.jpg]]![[Day7Clips.jpg]]
 ![[Day8Clips.jpg]]
 *I forgot to write it on there but this is Day 8, from the Halloween Special*
+
+![[Day9Clips.jpg]]

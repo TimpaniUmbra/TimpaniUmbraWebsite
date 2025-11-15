@@ -346,7 +346,90 @@ The three of them began to realize, it was... a dream of some kind?  They certai
 
 They spent a little time considering what had just happened, but Anita ultimately didn't want to think that hard on it.  She was just happy that she was with her friends (who she also surprised with a big hug.)  Her and Rio ate the cotton candy that was near them after all of this (to Selene's confusion), and the three headed off to Professor Olive's place, for real this time.
 
+#### Costumes for Smoliv
+
+Upon arriving to the Professor's lab, Anita got to visit Lillipup while Rio met up with some of his Pokémon (though Murphy, his Murkrow, was oddly absent).  They also found a very grumpy Professor, upset at being woken up at the awfully early time of 11:30 AM.  Nevertheless, he let the three in before locking himself in his room.
+
+The gang quickly rounded up all the Smoliv and got to work on their costumes.  Thankfully all of them seemed to have some crafting experience, and they didn't have too much trouble.  In particular, Anita was able to recall her abilities making costumes for Eevee, aiding her work here. Soon enough, they had a few little Exeggcute costumes that looked high-quality.  They'd probably pass for the real thing!  Probably.
+
+![[9-costume.png]]
+*One of the Smoliv's Costumes*
+
+Rio's Nymble, Nympi, tried to train the Smoliv to move and act in unison like an Exeggcute.  It... kinda worked?  At least, some of them were able to act like the real thing.  They figured it'd be good enough to get them into the stadium, at least!  Rio and Anita proudly showed the professor their work, and while he wasn't confident in the plan's success, he still gave the two their tickets for the exhibition match and shooed them all out of his lab.
+
+As they left, Rio did eventually find Murphy, who was excited to show the gang the stash of shiny objects he'd been accruing outside of the lab.  There were... so many different items.  It was kinda crazy how many different things he'd collected, including a multi-tool that Rio was able to trade for to use himself.  It was surprising to see how well Murphy was doing, but everyone was just happy to see him after he wasn't found earlier.
+
+They'd finished their main task, but there was still a lot of time before the exhibition match.  The three decided to split up for a little bit, after Selene suddenly started feeling exhausted. Anita in particular wanted to restock a little bit on ingredients and snacks, after recent adventures had used up some of her stock.  She headed off on her own, leaving Rio to do whatever Rios do on their own.
+
+#### Poppy's Cooking Challenge
+
+Anita's keen eye for food led her to a little shop on one of the side roads of Turffield.  It was a smaller place, nestled into the buildings on the street and very inconspicuous, but the door was open and there seemed to be a lot of items in there.  She entered, and while it was generally devoid of customers, the shelves really were PACKED.  So many different beautiful fruits and vegetables, meats of all kinds, spices she'd never seen before... it was heaven...
+
+After the stars in her eyes cooled down a bit, Anita realized there didn't seem to be anyone in the store.  No customers, no one at the front counter.  Thankfully, after calling out, a little old lady walked out from the back to greet her.  She was incredibly friendly, and the two quickly bonded over a love of cooking.
+
+The old lady introduced herself as Poppy Fletcher, and invited Anita back to her kitchen.  It was such a cozy place, and Anita immediately felt at home.  So warm, and inviting, and full of love.  Every tool, every piece of furniture, felt so intentionally picked out to create a space that truly felt cozy, lived in, and loved.  Anita couldn't help but think about her family's kitchen seeing this, and all of their own loved tools and utensils.  It made her feel warm inside (and a little bit outside as Poppy's Litten came to say hello).
+
+![[9-poppy.png|400]]
+*A little doodle of Poppy (I kinda want to try an actual piece for her, huh...)*
+
+The two talked for a while, and Anita described her journey so far.  Poppy was incredibly welcoming and cozy, and Anita was willing to say a lot to her about her family and life up to this point.  After some time together, Poppy asked if Anita had an hour or so to fulfill a request for her: cook her something.  Anything at all, with any ingredients in the store, and within an hour.
+
+Anita was surprised at the odd request, asking what this was for.  Poppy simply wanted to ensure that the tradition of cooking was alive and well, going down a good path for new generations of chefs.  While that did sound like a big deal, Anita accepted her little challenge, happy to have an opportunity to cook!
+
+Anita thought for a minute: anything was allowed, so what should she make?  There was one thing that kept flashing through her head for some reason: her dad's Eeveeloution Custard Pastries, that she loved to make and eat so much.  She wasn't quite sure why they were at the forefront of her mind, but they made her nostalgic for home and for eating them.  She decided this would be her creation for Poppy!
+
+With the idea in mind, Anita got to work.  She always started this recipe with the usual decision, deciding which Eeveeloution to create.  Each one has a different look and different flavors after all, so this had to be the first choice.  Anita enjoyed letting Eevee pick, letting him flip through pictures on her phone to decide.  After some careful deliberation, Eevee selected the image of Flareon, and the two got to work picking things from the storefront.
+
+It was a bit of a balancing act to account for the limited time, so Anita had to prioritize what to actually make from scratch versus what was premade.  Anita did her best to judge this out, knowing that the filling inside would be the key part of this.  For Flareon, the recipe required a unique filling of chilis and nanab, reflecting Flareon's heat and sweet comfy vibes coming together as one.  She put a lot of extra time into this specifically, ensuring that it would be a good blend of the too flavors.  Adding that heat is a major balancing act, but one that Anita had done so many times before.  She was able to create the inner custard with enough time to put together a decent pastry crust as well, though with a little more premade ingredients than before.  And thankfully, she had enough time to bake everything and decorate with premade icing.
+
+One thing that she realized as she worked was how... lax her technique had become.  Throughout the process, Poppy was careful not to intrude much, but did provide little ways for Anita to improve her technique.  "Hold your off hand like this while chopping", "make sure to use this bit of technique when mixing", those kinds of tips.  And Anita slowly realized that these were things her father used to tell her.  Every little improvement to her technique just made her feel like she was making things at home again, cooking with her dad, lost in how special cooking could be.  
+
+She realized, sometime before this new journey, she'd kinda lost that spark she used to have.  Sure, cooking was still her favorite activity, but this reminded her how much the little things meant.  How much the little details reminded her of home, and the love that went into the process.  It wasn't a perfect preparation by any means, but she was more proud of her work than she'd been in a long time.
+
+Eventually the big pastry was ready!  Everyone took their pieces (with Anita saving some for her friends as well), and had their taste test.
+
+And the love and pride seemed to radiate through her work.  Everyone loved it.  
+
+![[9-pastry.png|400]]
+*The Flareon Custard Pastry*
+
+Anita was happier with her result than ever.  It tasted everything like she hoped and then some.  Eevee and Litten enjoyed their pieces, chowing down until it was all gone.  And Poppy was overjoyed with the result.  She was surprised and delighted by the flavors on display, and was so complimentary of Anita's work.  By all accounts she'd passed... whatever that actually meant, though her happiness was enough for Anita.
+
+They talked a little more, with Poppy thanking Anita for the meal and for the experience of watching her cook.  And Anita thanked her back tenfold, for helping her realize the heart that she'd lost and was finding again in this comfy little kitchen.  For helping her see that there's a lot to still learn, and a lot to remember from before.  And for showing her the true heart of being in the kitchen again.
+
+Though she had to meet up with her friends again, Anita promised she'd be back before they left Turffield to chat again.  She also bought some new ingredients, over some lovely discussion over the many uses of their favorite vegetables.  Anita and Eevee left with lots of new ideas and happier hearts than they'd had in a long time.  They really felt like they were home in their family kitchen again.  And they were so excited to bring this love back to their friends, and everyone they would meet on their adventures.
+
+Anita arrived back at her hotel, finding Selene awake and Rio with a very spoiled (and happy) Venonat.  She gave her friends her pastry gifts and listened to them talk about their adventures for the day.  It really had been a while since they'd had her family's custard pastries, and Anita was beaming with pride as they enjoyed the treats once again.
+
+#### Battle! Cynthia vs. Leon
+
+Pretty soon it was time to head to Turffield Stadium; the Exhibition Match was near!  The gang quickly made it, only to reach their greatest challenge yet...
+
+... the lines ... 
+
+The lines to get into the stadium were really, really, really long.  But there was nothing for it but to wait and catch up a little, on all the time they spent apart.  Anita, still full of the warm fuzzy feelings from before, couldn't help but recall her time at Monteneyera.  Getting to meet all of the wonderful people, and getting to feel like a little family with the small, cozy community, was one of her favorite times of her travels.  She also remembered that Ryme was a wonderful person, super fun to be around and a very skilled gym leader.  She hoped that they could get Selene up there at some point to introduce the two!  Rio talked about his time in the Orre region, still up-and-coming in the battle world but with smaller groups starting to form.  Rio saw this as another great opportunity for Selene to expand her battle prowess, if they head there one day.  And Selene discussed the comfy vibes back in Veilstone, where she had enjoyed so much time outside of the academy.  She had lots of interesting sites, like the nearby Lake Verity, that sounded incredible to see in person. All of them realized they now had three great places to aim to see on their travels, hoping to make it to all of them one day.
+
+The discussion seemed to make the time go by faster, and soon they were in the stadium and at their seats.  Professor Olive showed up too, in the most elaborate Leon costume ever.  He did not have the body to masquerade as Leon, but besides that it was perfect.  He even managed to pull off some of Leon's poses perfectly, shocking the gang and causing lots of cheering among the crowd.  The Smoliv looked so good and cute in their little costumes, and everyone was accounted for: it seemed like there weren't any issues, and everyone was ready for some battles!
+
+The initial match was pretty cool, nothing super special but a solid warmup to get everyone excited.  Anita was more impressed with Selene's commentary: she seemed to know so much about the strategies at play during the battle.  She even seemed to have ideas for alternate strategies they could be using.  It was kind of incredible... Anita was happy to see Selene having such a good time, and hear her battle wisdom again.
+
+Soon, though, the real event was ready... Leon vs. Cynthia.  Two of the strongest trainers in the world, here to put on a match of a lifetime.  All of them knew what was up, and they were all hyped as hell to see the fireworks fly.  While Leon had gotten lost again, he was eventually found and looking more confident than ever.  And Cynthia was looking... well, Anita wasn't aware how pretty and hot she actually was until now, damn...
+
+The battle was insane.  Both of the competitors battled their hardest, both trainers in perfect sync with their Pokémon.  They were evenly matched, with so many electrifying clashes and knockouts traded back and forth.  Eventually, the finale that everyone expected was here: Leon's Charizard vs. Cynthia's Garchomp.  Leon went for the Gigantamax pretty quickly, with Charizard's massive and unique form.  Meanwhile Cynthia went for the Mega Evolution, just with... a different form than normal?  Apparently it was known as Mega Garchomp Z, though it seemed like most people were shocked by this.  Even Selene seemed surprised!  With this new Mega form, and careful timing through a late Dynamax, Garchomp ended up with the winning blow after Charizard's Gigantamax wore off, and the battle was over.  Cynthia had won.
+
+The crowd went insane.  Everyone cheered so loud, regardless of their allegiances.  Even those who wanted Leon to win were happy for such an amazing battle.  The gang were all incredibly hyped, with Selene especially going crazy from excitement.  It was a wonderful time, and the celebrations lasted for a while into the night.
+
+Eventually, the partying tired everyone out, and they headed back to the hotel.  Anita was so ready to sleep after the busy day she'd had.  As she fell asleep, her heart was so full from the day.  Feeling her cooking spirit return, and all of the amazing times with Rio and Selene, made her happier than ever.  She was so excited to see what was next for her and her friends.
+
+> [!info] Selene's Interlude
+>
+>*Player [[My Wonderful Friends#Soapy|Soapy]] had a solo session in which, that night, Selene returned to the spooky mansion from earlier, unable to break her curiosity of the strange place.  You should ask Soapy about this for the full details, it was really amazing to listen in on.  But a few broader details:*
+>- *Selene had her own heart-wrenching experiences in the mansion, but was fine and did end up returning at some point during the night.*
+>- *Anita and Rio were incredibly tired, and slept through Selene's exit and re-entrance.  They were so out of it that even when they got up for things like the restroom, they never realized Selene was actually gone.  They had also switched sleeping places by the end of the night, for some reason.*
+>- *Something about Selene's interactions with the mansion caused Rio and Anita to more clearly remember their time in the mansion*
+
 *To be continued...*
+
 
 ---
 ## Anita's Pokémon
@@ -368,6 +451,8 @@ Eevee isn't against evolution but hasn't found the right spirit to do so yet (ex
 After so much time together, Anita and Eevee have a great rapport and are able to understand each other very well even with a language barrier on Anita's end.  Eevee has a good understanding of theatrics to be able to let Anita know of various things, and has reminded Anita of important information that she forgot on their adventures through pantomime.
 
 Eevee sees himself as the primary tenant of Anita's hair, getting mad when other Pokémon enter it even by accident.  Eevee has also learned how to compartmentalize Anita's hair, storing treasures like his Torkoal plush very safely within.
+
+Anita made many costumes for Eevee growing up, for various parties and holidays.  Eevee was usually fine to go along with the ride, and accepted a variety of looks.  Some included Pumpkins and little chefs.  There were also some costumes of the various Eeveeloutions, and Eevee was very particular about these.
 
 #### Combee
 During a camping trip, Anita wanted to try using the local fauna to make a sweet treat.  She ended up being so successful that she attracted a stray Combee!  Anita was happy to let the little bee try her snack, and from that point Combee was more than happy to stay by her side.
