@@ -9,3 +9,4 @@ I dunno if I'll add the context entirely on these, but I'm happy to share if you
 *I forgot to write it on there but this is Day 8, from the Halloween Special*
 
 ![[Day9Clips.jpg]]
+![[Day10Clips.jpg]]

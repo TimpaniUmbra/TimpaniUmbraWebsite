@@ -417,16 +417,66 @@ Soon, though, the real event was ready... Leon vs. Cynthia.  Two of the stronges
 
 The battle was insane.  Both of the competitors battled their hardest, both trainers in perfect sync with their Pokémon.  They were evenly matched, with so many electrifying clashes and knockouts traded back and forth.  Eventually, the finale that everyone expected was here: Leon's Charizard vs. Cynthia's Garchomp.  Leon went for the Gigantamax pretty quickly, with Charizard's massive and unique form.  Meanwhile Cynthia went for the Mega Evolution, just with... a different form than normal?  Apparently it was known as Mega Garchomp Z, though it seemed like most people were shocked by this.  Even Selene seemed surprised!  With this new Mega form, and careful timing through a late Dynamax, Garchomp ended up with the winning blow after Charizard's Gigantamax wore off, and the battle was over.  Cynthia had won.
 
-The crowd went insane.  Everyone cheered so loud, regardless of their allegiances.  Even those who wanted Leon to win were happy for such an amazing battle.  The gang were all incredibly hyped, with Selene especially going crazy from excitement.  It was a wonderful time, and the celebrations lasted for a while into the night.
+The crowd went insane.  Everyone cheered so loud, regardless of their allegiances.  Even those who wanted Leon to win were happy for such an amazing battle.  The gang were all incredibly hyped, with Selene especially going crazy from excitement.  It was a wonderful time, and the celebrations lasted for a while into the night.  There was even a bet that Rio had to fulfill, eating an incredibly spicy takoyaki that nearly knocked out the other two and the vendor from the aura alone.  Somehow, Rio survived his trial.
+
+![[10-Takoyaki.png|500]]
 
 Eventually, the partying tired everyone out, and they headed back to the hotel.  Anita was so ready to sleep after the busy day she'd had.  As she fell asleep, her heart was so full from the day.  Feeling her cooking spirit return, and all of the amazing times with Rio and Selene, made her happier than ever.  She was so excited to see what was next for her and her friends.
+
+#### Memories of the Mansion
 
 > [!info] Selene's Interlude
 >
 >*Player [[My Wonderful Friends#Soapy|Soapy]] had a solo session in which, that night, Selene returned to the spooky mansion from earlier, unable to break her curiosity of the strange place.  You should ask Soapy about this for the full details, it was really amazing to listen in on.  But a few broader details:*
 >- *Selene had her own heart-wrenching experiences in the mansion, but was fine and did end up returning at some point during the night.*
->- *Anita and Rio were incredibly tired, and slept through Selene's exit and re-entrance.  They were so out of it that even when they got up for things like the restroom, they never realized Selene was actually gone.  They had also switched sleeping places by the end of the night, for some reason.*
->- *Something about Selene's interactions with the mansion caused Rio and Anita to more clearly remember their time in the mansion*
+>- *Anita and Rio were incredibly tired, and slept through Selene's exit and re-entrance.  They were so out of it that even when they got up for things like the restroom, they never realized Selene was actually gone.  They had also switched sleeping places by the end of the night, for some reason.  ADDITIONALY, the spicy food caused a lot of... stomach issues... for Rio that night.*
+>- *Something about Selene's interactions with the mansion caused Rio and Anita to more clearly remember their time in the mansion.*
+
+Anita had a strange sleep that night.  Thought it started great, with warm dreams about the previous day, they quickly shifted to terrifying nightmares.  A creepy mansion intent on torturing her and her friends, mannequins chasing them, her friends getting taken, fury and fighting and rage...  Waking up that morning was a little rough, with the intense memories flooding through her.  
+
+Wait, memories?
+
+Oh yeah... that stuff in the mansion did happen, huh.
+
+Rio and Selene woke up as well, and Rio confirmed the same thing as Anita with his own dreams.  That mansion was real, and they did go through that.  Admittedly Anita was going to just let it slide but Selene piped up, letting the others know that she had returned to the forest that night, and the mansion, from before.  She was too curious about what happened, and wanted to explore to see what was really going on.  In the process, the spirits within were apparently subdued, and it caused the memories to return to them in full.
+
+Selene was distraught at the realization that her friends remembered such horrible memories.  She apologized profusely, feeling incredibly guilty for her curiosity leading to this.  Anita and Rio began to let her know that things were ok, just happy that she was safe.  Anita wished she'd at least let them know first, but as long as she had made it back, it was alright.  Suddenly Rio had to hurry to the restroom after last night, so Anita and Selene went out onto the hotel balcony to let him relieve himself.
+
+Outside, Selene continued apologizing, furious that she couldn't just leave her curiosity behind.  She wished she could keep it locked away, to stop hurting others.  Anita tried her best to comfort her, assuring her that her curiosity is wonderful and that it's good to want to explore these emotions.  After all, it was because of following her own curiosity that she was even there in the first place!  She made sure to let Selene know how happy she was that she was willing to follow her spirit and curiosity.  And even if they had to remember the events from that scary place, that just made things sweeter knowing they were all right and together.  Anita couldn't tell if it was helping, but Selene at least looked calmer.  The two stood there for a bit, just watching the sun rise.
+
+#### Gym Preppies
+
+Eventually Rio conquered his bathroom trial, and the three decided to get ready for Selene's big gym battle!  Selene headed to the Pokémon Center on her own to start prepping, leaving Rio and Anita to wander.  The two went out to get some food, settling on a crepe stand after derailing from more spicy food.  The two reminisced a little bit about their first meeting, also with crepes.  They were both happy to be back together again, enjoying food and time together.
+
+Somehow there was a stall still open that had a bunch of celebratory fans for sale, which the two purchased from to help them cheer Selene on.  They then headed to the stadium, to find good seats and help Rio's stomach settle some more.
+
+The two learned that they actually could go down to watch Selene on the ground floor, and jumped at the chance to do so!  They went down to join Selene where she was getting ready, and she gave them wristbands and special access to watch with much better views.  Selene got registered, with her new jersey and everything!  With a number of 201, she was ready, and Anita and Rio cheered her on!
+
+Suddenly another guy showed up to register, a large man named Mitch.  Mitch was apparently late for his own match, and angrily berated the receptionist before storming off.  Rio went to comfort the lady behind the counter, and in the process she learned of Rio and Anita simply coming to watch their friend battle.  She then offered to register them for future fights, if they wanted!  They were both shocked, but Rio took the offer up without much time to think.  Number 071 was ready.
+
+Then the question was pointed to Anita.  Now, before, she would have immediately said no, she was in no place to battle, no way.  But after the adventures she'd seen in the past few days, things were different.  She'd actually battled now.  She had a little more of an idea of what's going on, why you battle, how to battle.  Swanna had showed her she may have a chance at this.  And after the previous night, she couldn't help but feel a little more inspired.  She accepted, number 007 (this was Skyler's favorite number).  Her friends were shocked, and truth be told, so was she.  But, Anita figured she may as well try!
+
+Thus, all three of the gang were scheduled.  And first up was Selene the Battle Fanatic.
+
+#### Battle! Selene vs. Milo
+
+![[10-MiloVsSelene.png]]
+
+With everything in order, Selene got out onto the field while her friends took their special seats.  They were so ready to cheer their friend on with their cool fans and their loud spirits.  Maybe too loud, people were very bewildered by them, but no matter.  For Selene, it was worth it!
+
+After a little introduction, the battle began.  From the outset, Selene was hitting incredibly hard.  Her Woobat did more than its fair share of damage, knocking out one Pokémon immediately and sending the other into dangerously low HP, letting Whirlipede get the knockout.  Selene's strategy came into full force, and she looked amazing out there with her team.  Anita and Rio cheered hard at every little victory she had, watching their friend take Milo on with style and power.  It was incredible to watch!
+
+Then, his Ace, Eldegoss, entered the field. It immediately flattened Selene's Growlithe with a powerful Leaf Storm, and the vibe shifted a little bit.  Anita had faith in her friend though, and sure enough, Whirlipede was able to return to the fight without fear.  The battle was fierce, with both sides trading blows (but also constantly benefitting from the Grassy Terrain Milo planted, heightening the stakes).  But with determination, Whirlipede held true, dealing lots of damage and staying afloat. 
+
+Eventually Milo seemed to halt the fight.  Nothing was going on.  What happened, was Selene alright???
+
+Soon though, Milo made the announcement: Selene had won his challenge!
+
+Anita and Rio were a mess of yelling and cheering, and Anita slammed into Selene for a hug to celebrate.  Selene had done wonderfully, her battle technique was so cool to see, she was awesome!  Selene got her badge from Milo, marking her victory.
+
+After some final logistics, the gang left the stadium to get Selene's Pokémon healed up.  At the Pokémon Center they spent more time talking about the battle and how proud Rio and Anita were of Selene's work.  When the Pokémon were all better, Selene treated the gang to lunch, finding a Paldean-themed restaurant that reminded Anita and Rio of home.  The gang were able to finally rest up after their exciting morning, all of them beaming with pride at Selene's victory.
+
+Soon, the next battle would begin.  Rio's turn to take on the Fighting Farmer...
 
 *To be continued...*
 
