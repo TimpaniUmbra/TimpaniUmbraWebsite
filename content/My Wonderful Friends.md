@@ -106,8 +106,7 @@ The concert features so many friends, all of whom have helped me find my rhythm 
 * My rival (I think, we can't decide entirely what this means)
 * Contagious positivity and joy for life and creativity, makes me feel more confident all the time
 
-![[soapyPlushTemp.png]]
-*Using a temp model for forbidden reasons*
+![[soapyPlush.png]]
 ### Winter
 - Any/All
 -  [Twitch](https://www.twitch.tv/winterblaze777) || [Website](https://linktr.ee/winterblaze)

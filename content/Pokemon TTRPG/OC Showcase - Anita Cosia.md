@@ -444,7 +444,7 @@ Selene was distraught at the realization that her friends remembered such horrib
 
 Outside, Selene continued apologizing, furious that she couldn't just leave her curiosity behind.  She wished she could keep it locked away, to stop hurting others.  Anita tried her best to comfort her, assuring her that her curiosity is wonderful and that it's good to want to explore these emotions.  After all, it was because of following her own curiosity that she was even there in the first place!  She made sure to let Selene know how happy she was that she was willing to follow her spirit and curiosity.  And even if they had to remember the events from that scary place, that just made things sweeter knowing they were all right and together.  Anita couldn't tell if it was helping, but Selene at least looked calmer.  The two stood there for a bit, just watching the sun rise.
 
-#### Gym Preppies
+#### Gym Preppies - Selene vs. Milo
 
 Eventually Rio conquered his bathroom trial, and the three decided to get ready for Selene's big gym battle!  Selene headed to the Pokémon Center on her own to start prepping, leaving Rio and Anita to wander.  The two went out to get some food, settling on a crepe stand after derailing from more spicy food.  The two reminisced a little bit about their first meeting, also with crepes.  They were both happy to be back together again, enjoying food and time together.
 
@@ -477,6 +477,12 @@ Anita and Rio were a mess of yelling and cheering, and Anita slammed into Selene
 After some final logistics, the gang left the stadium to get Selene's Pokémon healed up.  At the Pokémon Center they spent more time talking about the battle and how proud Rio and Anita were of Selene's work.  When the Pokémon were all better, Selene treated the gang to lunch, finding a Paldean-themed restaurant that reminded Anita and Rio of home.  The gang were able to finally rest up after their exciting morning, all of them beaming with pride at Selene's victory.
 
 Soon, the next battle would begin.  Rio's turn to take on the Fighting Farmer...
+
+#### Selene's Lessons: Battling Milo
+
+
+
+#### Battle!  Rio vs. Milo
 
 *To be continued...*
 
